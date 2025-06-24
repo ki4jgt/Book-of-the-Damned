@@ -192,19 +192,23 @@ But there is such a thing as being different. Animals who are different make the
 
 Humans cannot ignore the laws of Truth. They will keep popping up.
 
-For each challenge, there evolves a demand for a solution. And as much as Truth demands homogeny, so too does Truth demand difference.
+For each challenge, there evolves a demand for a solution. And as much as Truth demands homogeny, so too does Truth demand specialization.
 
 Truth spits out all the random potentials it can. Then challenges their existence with other random potentials.
 
 Parts of Truth which fail the challenge are obstructed.
 
-But the challenge is unknowable, so too is the solution.
+In the beginning of us, the essentials for life came about many times. It wasn't until Truth added a desire to feed and remain alive that life became more complex. The challenge, in this case, was the desire to stay cohesive -- something with which every lifeform is endowed.
 
-Truth produces variance because every variation is a solution to some challenge.
+As cells warred against one another, complex Truth systems -- already in existence -- began to rear themselves. Teams and partnerships emerged as multicellular organisms could consume more of their competition -- it is from these wars that we gain our emotions. Primitive logical structures which bridge the conceptual and the physical. The necessity with the meaning.
 
-Diseases have been shown to have advantages. Some fight back against others. Some attack the young, leaving only the old.
+But the challenge is unknowable, so too is the solution. Truth produces variance because every variation is a solution to some unknowable challenge.
 
-It is beyond us to determine the entire usefulness of a thing. All are Truth. All have strength and purpose.
+There are still single-celled organisms today, because Truth never lost a use for them. Viruses and bacteria can take down entire multicellular organisms, because they're small enough to infiltrate said organisms.
+
+Strength in the group fails against the very thing which built it. With every strength, there is an equal and opposite weakness. It is beyond us to determine the usefulness of a thing. Some diseases kill the young and leave the old.
+
+All are Truth. All have strength and purpose.
 
 ## On People
 Everything has 2 innate rights given it by Truth: 
@@ -224,6 +228,4 @@ These are the foundation of a free society. Refusing these rights to any person 
 
 Book of the Damned  by Anonymous is marked CC0 1.0 Universal. To view a copy of this mark, visit https://creativecommons.org/publicdomain/zero/1.0/
 
-This is a public domain text. Feel free to make personal amendums and modifications at your own discresion. The hope is the this will grow into an open sourced moral framework, to which all cultures and traditions may contribute. To provide the guidance of a parent for the orphan. A reason to hope for the hopeless. And a shelter for those who need it most.
-
-To this end, we need fables, music, and poetry -- an established cultural identity. which is why I invite everyone to contribute.
+You can find fellowship and community here: https://www.reddit.com/r/SocietyoftheDamned
