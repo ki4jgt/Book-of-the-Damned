@@ -1,13 +1,16 @@
-# The Book of the Damned
+Book of the Damned
+==================
 
-## Purpose
+# Purpose
 **The Book of the Damned** is a foundational framework for building an enriching and connected community. It's a shared cosmology and mythos for morality outside religious contexts and constraints. The expectation is a community that builds upon itself and evolves over time to serve the needs of its members and broader society.
 
 I've used some spare time to hobble together a hodgepodge of cultural knowledge, quantum mechanics, philosophy, and personal observations into a layman's text that I'm placing into the public domain, in the hopes that it grows into something larger.
 
 Enjoy the philosophy!
 
-## Preamble: In principio erat Verbum
+{{TOC}}
+
+# Preamble: In principio erat Verbum
 ```
 In the beginning is the Word,
 And the Word is with God,
@@ -55,14 +58,14 @@ You are a child of Possible.
 So is everything else.
 ```
 
-## Obligations
+# Obligations
 The Damned are a solitary order with 3 primary obligations:
 
 1. Ten percent of everything which comes to them must be donated back to their communities.
 2. Public discussion is to be encouraged and embraced.
 3. They are to speak to their hearts daily.
 
-## The Immutable Truth
+# The Immutable Truth
 Three Immutable attributes are often given to God. These are: omnipotence, omnipresence, and omniscience.
 
 - The Truth can never be manipulated nor changed, not even by a deity. Truth is omnipotent.
@@ -93,7 +96,7 @@ All Truth converges on a single point. Every side, with equal strength, reinforc
 
 What you do to one thing, you do to everything.
 
-## The Solitudes
+# The Solitudes
 
 1. Your brokenness isn't a sign of being broken, but of a healthy mind reacting to unhealthy circumstances.
 2. There's no shame in failure; it's part of the journey.
@@ -149,7 +152,7 @@ What you do to one thing, you do to everything.
 52. It doesn't go away just because you refuse to see it.
 53. Get up and do it again.
 
-## The Divinity
+# The Divinity
 It is through infinite recession that Truth births all. Not absence, but potential. And through infinite assertion, she gives form. Solid and unyielding.
 
 Both, the same Truth.
@@ -179,7 +182,7 @@ Always in you.
 And always you.
 ```
 
-## On Evolution
+# On Evolution
 The animal kingdom doesn't kill the weak; it kills the different.
 
 A flock of birds will gang up on and kill a single bird with brighter feathers. No matter how much it fights back, the flock gains no more respect for that bird.
@@ -210,7 +213,7 @@ Strength in the group fails against the very thing which built it. With every st
 
 All are Truth. All have strength and purpose.
 
-## On People
+# On People
 Everything has 2 innate rights given it by Truth: 
 
 1. The right to assert its own existence
