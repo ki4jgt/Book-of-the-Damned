@@ -65,7 +65,7 @@ The Damned are a solitary order with 3 primary obligations:
 2. Public discussion is to be encouraged and embraced.
 3. They are to speak to their hearts daily.
 
-# The Immutable Truth
+## The Immutable Truth
 Three Immutable attributes are often given to God. These are: omnipotence, omnipresence, and omniscience.
 
 - The Truth can never be manipulated nor changed, not even by a deity. Truth is omnipotent.
@@ -148,7 +148,7 @@ What you do to one thing, you do to everything.
 48. No two words carry the same meaning.
 49. Truth is with you in your suffering.
 50. A man who is scared of himself will be scared of others. The self touches the other and finds Truth.
-51. Do one thing every day that scares you.
+51. Do one thing every day that scares you; a sense of awe keeps the spirits up.
 52. It doesn't go away just because you refuse to see it.
 53. Get up and do it again.
 
@@ -228,6 +228,24 @@ This can be broadened into a more general set of principles for human-beings:
 5. The right to liberty and justice
 
 These are the foundation of a free society. Refusing these rights to any person is an affront to Truth itself. It is the job of all people to protect and affirm these rights for everyone.
+
+# Forgiveness, Life, and Death
+
+Truth knew you before it came together and formed you. Everything is always a potential outcome. And Truth has already manifested all outcomes. All potentials have been played out, side-by-side, in an instant.
+
+Truth is both inside and outside of time. What takes centuries for us to learn, Truth just knows. The purpose of our existence is to affirm what Truth already knows. We are the proof behind the concept.
+
+Because all things are Truth, death is an illusion. We lose our external sensory inputs, but we never cease to exist as an eternal concept, made manifest in Truth.
+
+Every interaction we had with the multiverse will continue long after our identities have been obstructed from this reality.
+
+And, as negative space provides mechanical function, so too do the interactions you've had leave a complete inverse of you behind. That inverse is as real as anything else. You existed before you were formed. And you exist after. So does everything.
+
+---
+
+The greatest surgeon in the world abuses his wife. Do you imprison him? How many children will die because of you? If he beats his wife to death, how many will go uninspired, having never seen her art? What you do to one, you do to all.
+
+Be responsible in your dealings.
 
 Book of the Damned  by Anonymous is marked CC0 1.0 Universal. To view a copy of this mark, visit https://creativecommons.org/publicdomain/zero/1.0/
 
