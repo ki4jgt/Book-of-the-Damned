@@ -251,9 +251,15 @@ Be responsible in your dealings.
 
 # On God
 
-There seems to be an order to all of this. Just as the desire for cohesion eventually arose from randomness -- it was the only thing which could -- so too do pre-established rules arise. And we seem not to be able to proceed without acknowledging them. A desire for cohesion and stasis from fundamental elements, before life can begin. All coming from the freedom of absolute randomness.
+There seems to be an order to all of this. Just as the desire for cohesion eventually arose from randomness -- it was the only thing which could -- so too do pre-established rules arise from freedom. And we seem not to be able to proceed without acknowledging them. A desire for cohesion and stasis from fundamental elements, before life can begin.
 
-Call this God, or science. In absolute chaos, there are rules. And as these rules reach down to us, we reach up to them, standing upon the shoulders of giants.
+Laws, like Newton's where every action has an equal reaction, leading to even greater truths. Like the requirement of everything having its entire history -- and the history of all others -- encoded within itself.
+
+Or, that everything you put out affects the target, the society, and you. The instant you put it out, you create its image inside yourself.
+
+Or, the instability of certain nations, because of injustice. Those injustices will forever be recorded in Truth, and will continue to pop up until they are resolved.
+
+Call this God, or science. In absolute chaos, there are rules. And as these rules reach down to us, we reach up to them. The chaos creating the rules, and the rules creating the chaos.
 
 Book of the Damned  by Anonymous is marked CC0 1.0 Universal. To view a copy of this mark, visit https://creativecommons.org/publicdomain/zero/1.0/
 
