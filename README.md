@@ -2,7 +2,7 @@ Book of the Damned
 ==================
 
 # Purpose
-**The Book of the Damned** is a foundational framework for building an enriching and connected community. It's a shared cosmology and mythos for morality outside religious contexts and constraints. The expectation is a community that builds upon itself and evolves over time to serve the needs of its members and broader society.
+**The Book of the Damned** is a foundational framework for building an enriching and connected social haven for those who need it. It's a shared cosmology and mythos for morality outside religious contexts and constraints. The expectation is a community that builds upon itself and evolves over time to serve the needs of its members and broader society.
 
 I've used some spare time to hobble together a hodgepodge of cultural knowledge, quantum mechanics, philosophy, and personal observations into a layman's text that I'm placing into the public domain, in the hopes that it grows into something larger.
 
@@ -65,7 +65,7 @@ The Damned are a solitary order with 3 primary obligations:
 2. Public discussion is to be encouraged and embraced.
 3. They are to speak to their hearts daily.
 
-## The Immutable Truth
+# The Immutable Truth
 Three Immutable attributes are often given to God. These are: omnipotence, omnipresence, and omniscience.
 
 - The Truth can never be manipulated nor changed, not even by a deity. Truth is omnipotent.
@@ -148,9 +148,11 @@ What you do to one thing, you do to everything.
 48. No two words carry the same meaning.
 49. Truth is with you in your suffering.
 50. A man who is scared of himself will be scared of others. The self touches the other and finds Truth.
-51. Do one thing every day that scares you; a sense of awe keeps the spirits up.
-52. It doesn't go away just because you refuse to see it.
-53. Get up and do it again.
+51. Learn to heal yourself from those whom life has broken.
+52. Do one thing every day that scares you; a sense of awe keeps the spirits up.
+53. There is a time for superficialities, but true awareness lies deep below the surface.
+54. It doesn't go away just because you refuse to see it.
+55. Get up and do it again.
 
 # The Divinity
 It is through infinite recession that Truth births all. Not absence, but potential. And through infinite assertion, she gives form. Solid and unyielding.
@@ -209,7 +211,7 @@ But the challenge is unknowable, so too is the solution. Truth produces variance
 
 There are still single-celled organisms today, because Truth never lost a use for them. Viruses and bacteria can take down entire multicellular organisms, because they're small enough to infiltrate said organisms.
 
-Strength in the group fails against the very thing which built it. With every strength, there is an equal and opposite weakness. It is beyond us to determine the usefulness of a thing. Some diseases kill the young and leave the old.
+Strength in the group fails against the very thing which built it -- the individual. With every strength, there is an equal and opposite weakness. It is beyond us to determine the usefulness of a thing. Some diseases kill the young and leave the old. Some target less healthy.
 
 All are Truth. All have strength and purpose.
 
@@ -246,6 +248,12 @@ And, as negative space provides mechanical function, so too do the interactions 
 The greatest surgeon in the world abuses his wife. Do you imprison him? How many children will die because of you? If he beats his wife to death, how many will go uninspired, having never seen her art? What you do to one, you do to all.
 
 Be responsible in your dealings.
+
+# On God
+
+There seems to be an order to all of this. Just as the desire for cohesion eventually arose from randomness -- it was the only thing which could -- so too do pre-established rules arise. And we seem not to be able to proceed without acknowledging them. A desire for cohesion and stasis from fundamental elements, before life can begin. All coming from the freedom of absolute randomness.
+
+Call this God, or science. In absolute chaos, there are rules. And as these rules reach down to us, we reach up to them, standing upon the shoulders of giants.
 
 Book of the Damned  by Anonymous is marked CC0 1.0 Universal. To view a copy of this mark, visit https://creativecommons.org/publicdomain/zero/1.0/
 
