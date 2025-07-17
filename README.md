@@ -6,6 +6,16 @@ Book of the Damned
 
 I've used some spare time to hobble together a hodgepodge of cultural knowledge, quantum mechanics, philosophy, and personal observations into a layman's text that I'm placing into the public domain, in the hopes that it grows into something larger.
 
+This book is open. The text is public domain. The idea is that each follower may make a copy for themselves and modify it however they see fit. If they want to share those modifications, then others may copy the modifications they've made.
+
+Ideally, we don't try to convert people. We don't have authority figures to interpret "scripture." We CAN form communities to help one another socially, but not correct others' interpretations. The journey is for the individual. It is through self-improvement that the community is improved.
+
+Our gatherings should encourage social discourse.
+
+The basic premise being: Since I haven't had the same life experiences as you, your copy of the book should never look exactly like mine. But open dialog allows us to discuss our points of view and take the views of others to our own books.
+
+I'd also like to encourage learning to play the game of Go. Not as an edict, but as a cultural foundation and mental cultivation for us, as a group. If you can master such a game, you can master anything life throws at you.
+
 Enjoy the philosophy!
 
 {{TOC}}
@@ -141,18 +151,21 @@ What you do to one thing, you do to everything.
 41. Do not allow the Lie to taint your gifts: Do unto others as you would have done unto yourself.
 42. The Lie thrives in the hearts of men when they aren't connected to the Truth, or themselves.
 43. Evil justifies its actions as necessary.
-44. Truth has neither will nor intent; all  is its nature.
-45. Why share something if it can't be used?
-46. Competition breeds innovation; it also breeds cheating.
-47. Listen.
-48. No two words carry the same meaning.
-49. Truth is with you in your suffering.
-50. A man who is scared of himself will be scared of others. The self touches the other and finds Truth.
-51. Learn to heal yourself from those whom life has broken.
-52. Do one thing every day that scares you; a sense of awe keeps the spirits up.
-53. There is a time for superficialities, but true awareness lies deep below the surface.
-54. It doesn't go away just because you refuse to see it.
-55. Get up and do it again.
+44. Truth is beyond numbering, tribal markings, or dedications.
+45. Truth has neither will nor intent; all  is its nature.
+46. Why share something if it can't be used?
+47. Competition breeds innovation; it also breeds cheating.
+48. Listen.
+49. No two words carry the same meaning.
+50. Truth is with you in your suffering.
+51. A man who is scared of himself will be scared of others. The self touches the other and finds Truth.
+52. Learn to heal yourself from those whom life has broken.
+53. Do one thing every day that scares you; a sense of awe keeps the spirits up.
+54. There is a time for superficialities, but true awareness lies deep below the surface.
+55. Advancement is not permission to 
+56. It's possible to do everything right and still lose.
+57. It doesn't go away just because you refuse to see it.
+58. Get up and do it again.
 
 # The Divinity
 It is through infinite recession that Truth births all. Not absence, but potential. And through infinite assertion, she gives form. Solid and unyielding.
@@ -251,7 +264,7 @@ Be responsible in your dealings.
 
 # On God
 
-There seems to be an order to all of this. Just as the desire for cohesion eventually arose from randomness -- it was the only thing which could -- so too do pre-established rules arise from freedom. And we seem not to be able to proceed without acknowledging them. A desire for cohesion and stasis from fundamental elements, before life can begin.
+There seems to be an order to all of this. Just as the desire for cohesion eventually arose from randomness -- it was the only thing which could -- so too do pre-established rules arise from freedom. And we seem not to be able to proceed without acknowledging them. A desire for cohesion and stasis from fundamental forces, before life can begin.
 
 Laws, like Newton's where every action has an equal reaction, leading to even greater truths. Like the requirement of everything having its entire history -- and the history of all others -- encoded within itself.
 
@@ -259,8 +272,6 @@ Or, that everything you put out affects the target, the society, and you. The in
 
 Or, the instability of certain nations, because of injustice. Those injustices will forever be recorded in Truth, and will continue to pop up until they are resolved.
 
-Call this God, or science. In absolute chaos, there are rules. And as these rules reach down to us, we reach up to them. The chaos creating the rules, and the rules creating the chaos.
+Call this God, or science. In absolute chaos, there are rules... An oreder to things. And these rules reach down to us, as we reach up to them. We reach up to something greater and larger than ourselves. Believing,  in full faith, that by trusting them, tomorrow will be better than today.
 
 Book of the Damned  by Anonymous is marked CC0 1.0 Universal. To view a copy of this mark, visit https://creativecommons.org/publicdomain/zero/1.0/
-
-You can find fellowship and community here: https://www.reddit.com/r/SocietyoftheDamned
