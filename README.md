@@ -14,7 +14,7 @@ Our gatherings should encourage social discourse.
 
 The basic premise being: Since I haven't had the same life experiences as you, your copy of the book should never look exactly like mine. But open dialog allows us to discuss our points of view and take the views of others to our own books.
 
-I'd also like to encourage learning to play the game of Go. Not as an edict, but as a cultural foundation and mental cultivation for us, as a group. If you can master such a game, you can master anything life throws at you.
+I'd also like to encourage learning to play the game of Go. Not as an edict, but as a cultural foundation and mental cultivation for us, as a group.
 
 Enjoy the philosophy!
 
@@ -244,7 +244,7 @@ This can be broadened into a more general set of principles for human-beings:
 
 These are the foundation of a free society. Refusing these rights to any person is an affront to Truth itself. It is the job of all people to protect and affirm these rights for everyone.
 
-# Forgiveness, Life, and Death
+# Life and Death
 
 Truth knew you before it came together and formed you. Everything is always a potential outcome. And Truth has already manifested all outcomes. All potentials have been played out, side-by-side, in an instant.
 
@@ -256,11 +256,9 @@ Every interaction we had with the multiverse will continue long after our identi
 
 And, as negative space provides mechanical function, so too do the interactions you've had leave a complete inverse of you behind. That inverse is as real as anything else. You existed before you were formed. And you exist after. So does everything.
 
----
+# Fables
 
-The greatest surgeon in the world abuses his wife. Do you imprison him? How many children will die because of you? If he beats his wife to death, how many will go uninspired, having never seen her art? What you do to one, you do to all.
-
-Be responsible in your dealings.
+A great surgeon abuses his wife. Do you imprison him? How many children will die because of this? If he beats his wife to death, how many go uninspired, having never seen her art? What happens to one, happens to us all.
 
 # On God
 
