@@ -142,30 +142,34 @@ What you do to one thing, you do to everything.
 32. Cruelty is the heart crying out for Truth, while the Lie beats it relentlessly for doing so. That's how the Lie passes from thing to thing. It convinces Truth it isn't real.
 33. Cruelty is the refuge of the weak and feeble minded. Unable to fend for themselves, they resort to grandstanding.
 34. Criticism is the expectation of betterment. And to what end?
-35. Fear is the beginning of wisdom; fear of the Truth is the beginning of the Lie.
-36. Anyone wanting to defeat the Lie should listen to what it says.
-37. Be mindful of the food you eat.
-38. Those who want peace should prepare for war.
-39. Truth manifests in each of us our own gifts.
-40. Slow dedicated quality will always outshine rushed batched quantity; both come at a cost.
-41. Do not allow the Lie to taint your gifts: Do unto others as you would have done unto yourself.
-42. The Lie thrives in the hearts of men when they aren't connected to the Truth, or themselves.
-43. Evil justifies its actions as necessary.
-44. Truth is beyond numbering, tribal markings, or dedications.
-45. Truth has neither will nor intent; all  is its nature.
-46. Why share something if it can't be used?
-47. Competition breeds innovation; it also breeds cheating.
-48. Listen.
-49. No two words carry the same meaning.
-50. Truth is with you in your suffering.
-51. A man who is scared of himself will be scared of others. The self touches the other and finds Truth.
-52. Learn to heal yourself from those whom life has broken.
-53. Do one thing every day that scares you; a sense of awe keeps the spirits up.
-54. There is a time for superficialities, but true awareness lies deep below the surface.
-55. Advancement is not permission to 
-56. It's possible to do everything right and still lose.
-57. It doesn't go away just because you refuse to see it.
-58. Get up and do it again.
+35. The measure of the sincerity of your words directly correlates to the implications you perceive surrounding them.
+36. Fear is the beginning of wisdom; fear of the Truth is the beginning of the Lie.
+37. Anyone wanting to defeat the Lie should listen to what it says.
+38. Be mindful of the food you eat.
+39. Those who want peace should prepare for war.
+40. Truth manifests in each of us our own gifts.
+41. Slow dedicated quality will always outshine rushed batched quantity; both come at a cost.
+42. Do not allow the Lie to taint your gifts: Do unto others as you would have done unto yourself.
+43. Do not make promises or swear oaths. Let others see the integrity of your words through your actions.
+44. The Lie thrives in the hearts of men when they aren't connected to the Truth, or themselves.
+45. Evil justifies its actions as necessary.
+46. Truth is beyond numbering, tribal markings, or dedications.
+47. Truth has neither will nor intent; all  is its nature.
+48. Why share something if it can't be used?
+49. Competition breeds innovation; it also breeds cheating.
+50. The louder Truth speaks, the less people listen.
+51. Listen.
+52. No two words carry the same meaning.
+53. Truth is with you in your suffering.
+54. A man who is scared of himself will be scared of others. The self touches the other and finds Truth.
+55. Learn to heal yourself from those whom life has broken.
+56. Do one thing every day that scares you; a sense of awe keeps the spirits up.
+57. There is a time for superficialities, but true awareness lies deep below the surface.
+58. Advancement is not permission to disregard growth.
+59. Educate yourself.
+60. It is possible to commit no mistakes and still lose. That is not weakness; that is life.
+61. It doesn't go away just because you refuse to see it.
+62. Get up and do it again.
 
 # The Divinity
 It is through infinite recession that Truth births all. Not absence, but potential. And through infinite assertion, she gives form. Solid and unyielding.
@@ -196,6 +200,8 @@ Always with you.
 Always in you.
 And always you.
 ```
+
+Truth has no need, for it is all. Gentle enough to allow space for every outcome, yet firm enough to avoid being corrupted by them. Mercifully giving, while unrelentlessly upholding. A gracious host who is master of his own domain. Not forceful in any way. It knows exacty what it is, and what it has already established.
 
 # On Evolution
 The animal kingdom doesn't kill the weak; it kills the different.
@@ -258,7 +264,13 @@ And, as negative space provides mechanical function, so too do the interactions 
 
 # Fables
 
-A great surgeon abuses his wife. Do you imprison him? How many children will die because of this? If he beats his wife to death, how many go uninspired, having never seen her art? What happens to one, happens to us all.
+## The Grand Surgeon
+
+A great surgeon abuses his wife. Do you imprison him? How many children will die because of this? If he beats his wife to death, how many go uninspired, having never seen her art? Do you let him go free because, he has skill? How many more will he harm, because you need him?
+
+## The Girl and the Monster
+
+
 
 # On God
 
@@ -272,4 +284,4 @@ Or, the instability of certain nations, because of injustice. Those injustices w
 
 Call this God, or science. In absolute chaos, there are rules... An oreder to things. And these rules reach down to us, as we reach up to them. We reach up to something greater and larger than ourselves. Believing,  in full faith, that by trusting them, tomorrow will be better than today.
 
-Book of the Damned  by Anonymous is marked CC0 1.0 Universal. To view a copy of this mark, visit https://creativecommons.org/publicdomain/zero/1.0/
+Book of the Damned by Anonymous is released into the public domain. No rights reserved!
