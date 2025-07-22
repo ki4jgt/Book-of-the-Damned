@@ -2,21 +2,20 @@ Book of the Damned
 ==================
 
 # Purpose
-**The Book of the Damned** is a foundational framework for building an enriching and connected social haven for those who need it. It's a shared cosmology and mythos for morality outside religious contexts and constraints. The expectation is a community that builds upon itself and evolves over time to serve the needs of its members and broader society.
 
-I've used some spare time to hobble together a hodgepodge of cultural knowledge, quantum mechanics, philosophy, and personal observations into a layman's text that I'm placing into the public domain, in the hopes that it grows into something larger.
+**The Book of the Damned** is a public domain spiritual framework — a shared cosmology for those seeking meaning, morality, and community outside the confines and constraints traditional religion.
 
-This book is open. The text is public domain. The idea is that each follower may make a copy for themselves and modify it however they see fit. If they want to share those modifications, then others may copy the modifications they've made.
+It is a living document: a foundation, not a fixed creed. Rooted in cultural memory, quantum theory, philosophy, and personal reflection, it is designed to grow, adapt, and evolve through the contributions of its readers.
 
-Ideally, we don't try to convert people. We don't have authority figures to interpret "scripture." We CAN form communities to help one another socially, but not correct others' interpretations. The journey is for the individual. It is through self-improvement that the community is improved.
+Everyone is free to copy, modify, and share their own version of this text. The expectation is not uniformity, but divergence. Each person’s life is unique, and so their version of the book should also be as unique. Our community is committed to growth, reflection, and refinement, but never the assumption to fully know or instruct another.
 
-Our gatherings should encourage social discourse.
+There are no authorities here. No dogma. No conversions. The journey is sole. But through individual growth, the group is made stronger.
 
-The basic premise being: Since I haven't had the same life experiences as you, your copy of the book should never look exactly like mine. But open dialog allows us to discuss our points of view and take the views of others to our own books.
+Gatherings should serve as spaces for open dialogue and mutual support.
 
-I'd also like to encourage learning to play the game of Go. Not as an edict, but as a cultural foundation and mental cultivation for us, as a group.
+I also encourage learning to play the game of Go — not as doctrine, but as a cultural touchstone, mental discipline, and personal development.
 
-Enjoy the philosophy!
+Enjoy the philosophy. Expand it, if it helps. Ignore it, if it doesn't.
 
 {{TOC}}
 
@@ -146,19 +145,19 @@ What you do to one thing, you do to everything.
 36. Fear is the beginning of wisdom; fear of the Truth is the beginning of the Lie.
 37. Anyone wanting to defeat the Lie should listen to what it says.
 38. Be mindful of the food you eat.
-39. Those who want peace should prepare for war.
-40. Truth manifests in each of us our own gifts.
-41. Slow dedicated quality will always outshine rushed batched quantity; both come at a cost.
-42. Do not allow the Lie to taint your gifts: Do unto others as you would have done unto yourself.
-43. Do not make promises or swear oaths. Let others see the integrity of your words through your actions.
-44. The Lie thrives in the hearts of men when they aren't connected to the Truth, or themselves.
-45. Evil justifies its actions as necessary.
-46. Truth is beyond numbering, tribal markings, or dedications.
-47. Truth has neither will nor intent; all  is its nature.
-48. Why share something if it can't be used?
-49. Competition breeds innovation; it also breeds cheating.
-50. The louder Truth speaks, the less people listen.
-51. Listen.
+39. Truth manifests in each of us our own gifts.
+40. Slow dedicated quality will always outshine rushed batched quantity; both come at a cost.
+41. Do not allow the Lie to taint your gifts: Do unto others as you would have done unto yourself.
+42. Do not make promises or swear oaths. Let others see the integrity of your words through your actions.
+43. The Lie thrives in the hearts of men when they aren't connected to the Truth, or themselves.
+44. Evil justifies its actions as necessary.
+45. Truth is beyond numbering, tribal markings, logic, or rankings.
+46. Truth has neither will nor intent; all  is its nature.
+47. Why share something if it can't be used?
+48. Competition breeds innovation; it also breeds cheating.
+49. The louder Truth speaks, the less people want to listen.
+50. Listen.
+51. Truth is foolish.
 52. No two words carry the same meaning.
 53. Truth is with you in your suffering.
 54. A man who is scared of himself will be scared of others. The self touches the other and finds Truth.
@@ -167,9 +166,10 @@ What you do to one thing, you do to everything.
 57. There is a time for superficialities, but true awareness lies deep below the surface.
 58. Advancement is not permission to disregard growth.
 59. Educate yourself.
-60. It is possible to commit no mistakes and still lose. That is not weakness; that is life.
-61. It doesn't go away just because you refuse to see it.
-62. Get up and do it again.
+60. If duress is your only motivator, then you will always require it. And you will pass this requirement to others. Celebrate the completion of even the smallest tasks.
+61. It is possible to commit no mistakes and still lose. That is not weakness; that is life.
+62. It doesn't go away just because you refuse to see it.
+63. Get up and do it again.
 
 # The Divinity
 It is through infinite recession that Truth births all. Not absence, but potential. And through infinite assertion, she gives form. Solid and unyielding.
