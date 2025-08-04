@@ -20,6 +20,7 @@ Enjoy the philosophy. Expand it, if it helps. Ignore it, if it doesn't.
 {{TOC}}
 
 # Preamble: In principio erat Verbum
+
 ```
 In the beginning is the Word,
 And the Word is with God,
@@ -68,6 +69,7 @@ So is everything else.
 ```
 
 # Obligations
+
 The Damned are a solitary order with 3 primary obligations:
 
 1. Ten percent of everything which comes to them must be donated back to their communities.
@@ -75,6 +77,7 @@ The Damned are a solitary order with 3 primary obligations:
 3. They are to speak to their hearts daily.
 
 # The Immutable Truth
+
 Three Immutable attributes are often given to God. These are: omnipotence, omnipresence, and omniscience.
 
 - The Truth can never be manipulated nor changed, not even by a deity. Truth is omnipotent.
@@ -174,12 +177,14 @@ What you do to one thing, you do to everything.
 65. You must believe that you're the one to change things -- we all must! Otherwise, what's the point?
 66. Learn to turn minor setbacks to your advantage.
 67. Truth keeps all; nothing is wasted.
-68. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
-69. It doesn't go away just because you refuse to see it.
-70. If you want something, don't be afraid to ask for it.
-71. Get up and do it again.
+68. The Lie learns to weave itself in and out of the law. Truth arises from the heart.
+69. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
+70. It doesn't go away just because you refuse to see it.
+71. If you want something, don't be afraid to ask for it.
+72. Get up and do it again.
 
 # The Divinity
+
 It is through infinite recession that Truth births all. Not absence, but potential. And through infinite assertion, she gives form. Solid and unyielding.
 
 Both, the same Truth.
@@ -209,9 +214,10 @@ Always in you.
 And always you.
 ```
 
-Truth has no need, for it is all. Gentle enough to allow space for every outcome, yet firm enough to avoid being corrupted by them. Mercifully giving, while relentlessly upholding. A gracious host who is master of his domain. Not forceful. Fully realized.
+Truth has no need, for it is all. Gentle enough to allow space for every outcome, yet firm enough to avoid being corrupted by them. Mercifully giving, while relentlessly upholding. A gracious host who is master of his domain. Not forceful. Not foreboding. Fully realized.
 
 # On Evolution
+
 The animal kingdom doesn't kill the weak; it kills the different.
 
 A flock of birds will gang up on and kill a single bird with brighter feathers. No matter how much it fights back, the flock gains no more respect for that bird.
@@ -243,6 +249,7 @@ Strength in the group fails against the very thing which built it -- the individ
 All are Truth. All have strength and purpose.
 
 # On People
+
 Everything has 2 innate rights given it by Truth: 
 
 1. The right to assert its own existence
@@ -270,9 +277,11 @@ Every interaction we had with the multiverse will continue long after our identi
 
 And, as negative space provides mechanical function, so too do the interactions you've had leave a complete inverse of you behind. That inverse is as real as anything else. You existed before you were formed. And you exist after. So does everything.
 
+Learn to laugh in the face of Death; Truth gives it no power over you.
+
 # Fables
 
-The Book of Fables is a simplistic commentary on complex truths. These aren't meant to be eloquent stories, but tiny acknowledged truths.
+The Book of Fables is a simplistic commentary on complex truths. These aren't meant to be eloquent stories, but tiny acknowledged realizations.
 
 ## The Grand Surgeon
 
