@@ -379,4 +379,6 @@ The void stirs. The Lie collapses into itself, becoming smaller, quieter, retrea
 
 The Lie seeks to end its own existence, and because Truth is all things, to accomplish this, the Lie seeks to destroy Truth itself.
 
+There is no sin in personal identity, nor in contrasting Truth. Only in an attempted destruction of Truth to achieve these things.
+
 Book of the Damned by Anonymous is released into the public domain. No rights reserved!
