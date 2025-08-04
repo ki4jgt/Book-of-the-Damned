@@ -173,10 +173,11 @@ What you do to one thing, you do to everything.
 64. Nobility isn't a ruleset for the swine; it's doing the right thing when everyone else refuses.
 65. You must believe that you're the one to change things -- we all must! Otherwise, what's the point?
 66. Learn to turn minor setbacks to your advantage.
-67. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
-68. It doesn't go away just because you refuse to see it.
-69. If you want something, don't be afraid to ask for it.
-70. Get up and do it again.
+67. Truth keeps all; nothing is wasted.
+68. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
+69. It doesn't go away just because you refuse to see it.
+70. If you want something, don't be afraid to ask for it.
+71. Get up and do it again.
 
 # The Divinity
 It is through infinite recession that Truth births all. Not absence, but potential. And through infinite assertion, she gives form. Solid and unyielding.
@@ -293,9 +294,9 @@ Taps on the shoulder. Jabs to the stomach. Faint laughter in her ears.
 
 And as he finally reached out with his palm to grab her, Emma ran! She ran and ran. Running right through her front door, and into her bedroom. Slamming the door behind her.
 
-And as she was hiding in her room, she could hear the monster rummaging though her things. Then he began to bang on her closet door, harder and harder. The banging would not stop.
+And as she was hiding in her closet, she could hear the monster rummaging though her things. Then he began to bang on her closet door, harder and harder. The banging would not stop.
 
-Finally, as he got the door open, and was coming in, Emma looked him right in the eyes and smiled.
+Finally, as he got the door open, and was coming towards her, Emma stopped crying and looked him right in the eyes and smiled.
 
 *poof* The monster vanished.
 
