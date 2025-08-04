@@ -160,17 +160,23 @@ What you do to one thing, you do to everything.
 51. Listen.
 52. Truth is foolish.
 53. No two words carry the same meaning.
-54. Truth is with you in your suffering.
+54. In the face of the Lie, Truth is always with you.
 55. A man who is scared of himself will be scared of others. The self touches the other and finds Truth.
 56. Learn to heal yourself from those whom life has broken.
 57. Do one thing every day that scares you; a sense of awe keeps the spirits up.
 58. There is a time for superficialities, but true awareness lies deep below the surface.
 59. Advancement is not permission to disregard growth.
-60. Educate yourself.
-61. If duress is your only motivator, then you will always require it. And you will pass this requirement to others. Celebrate the completion of even the smallest tasks.
-62. It is possible to commit no mistakes and still lose. That is not weakness; that is life.
-63. It doesn't go away just because you refuse to see it.
-64. Get up and do it again.
+60. Too many become preoccupied with what they deserve; Truth has gifted us All.
+61. Educate yourself.
+62. If duress is your only motivator, then you will always require it. And you will pass this requirement to others. Celebrate the completion of even the smallest tasks.
+63. It is possible to commit no mistakes and still lose. That is not weakness; that is life.
+64. Nobility isn't a ruleset for the swine; it's doing the right thing when everyone else refuses.
+65. You must believe that you're the one to change things -- we all must! Otherwise, what's the point?
+66. Learn to turn minor setbacks to your advantage.
+67. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
+68. It doesn't go away just because you refuse to see it.
+69. If you want something, don't be afraid to ask for it.
+70. Get up and do it again.
 
 # The Divinity
 It is through infinite recession that Truth births all. Not absence, but potential. And through infinite assertion, she gives form. Solid and unyielding.
@@ -202,7 +208,7 @@ Always in you.
 And always you.
 ```
 
-Truth has no need, for it is all. Gentle enough to allow space for every outcome, yet firm enough to avoid being corrupted by them. Mercifully giving, while unrelentlessly upholding. A gracious host who is master of his own domain. Not forceful in any way. It knows exacty what it is, and what it has already established.
+Truth has no need, for it is all. Gentle enough to allow space for every outcome, yet firm enough to avoid being corrupted by them. Mercifully giving, while relentlessly upholding. A gracious host who is master of his domain. Not forceful. Fully realized.
 
 # On Evolution
 The animal kingdom doesn't kill the weak; it kills the different.
@@ -259,19 +265,41 @@ Truth is both inside and outside of time. What takes centuries for us to learn, 
 
 Because all things are Truth, death is an illusion. We lose our external sensory inputs, but we never cease to exist as an eternal concept, made manifest in Truth.
 
-Every interaction we had with the multiverse will continue long after our identities have been obstructed from this reality.
+Every interaction we had with the multiverse will continue long after our identities have been obstructed.
 
 And, as negative space provides mechanical function, so too do the interactions you've had leave a complete inverse of you behind. That inverse is as real as anything else. You existed before you were formed. And you exist after. So does everything.
 
 # Fables
 
+The Book of Fables is a simplistic commentary on complex truths. These aren't meant to be eloquent stories, but tiny acknowledged truths.
+
 ## The Grand Surgeon
 
 A great surgeon abuses his wife. Do you imprison him? How many children will die because of this? If he beats his wife to death, how many go uninspired, having never seen her art? Do you let him go free because, he has skill? How many more will he harm, because you need him?
 
-## The Girl and the Monster
+## The Girl and the Monster (For Mom)
 
+There once was a girl named Emma. And as all humans do, she began her day by opening her eyes. Laying in her bed, still partially dreaming, Something felt off.
 
+Nevertheless, she shook this feeling and pushed herself to get up. As she was getting dressed, a dark figure in her mirror started her, and sent her screaming to her mother.
+
+Having sufficiently calmed her, her mother investigated the situation and found nothing.
+
+On the way to school, Emma felt the figure following her. She felt him breathing on the back of her neck. But she didn't dare turn around.
+
+She could see him in all the reflective surfaces throughout her day. And by the end of the day, she was feeling his touch.
+
+Taps on the shoulder. Jabs to the stomach. Faint laughter in her ears.
+
+And as he finally reached out with his palm to grab her, Emma ran! She ran and ran. Running right through her front door, and into her bedroom. Slamming the door behind her.
+
+And as she was hiding in her room, she could hear the monster rummaging though her things. Then he began to bang on her closet door, harder and harder. The banging would not stop.
+
+Finally, as he got the door open, and was coming in, Emma looked him right in the eyes and smiled.
+
+*poof* The monster vanished.
+
+Destruction comes one step at a time. Do not fear the darkness, for Truth comes in the same manner, one step after another, refusing to fear the dark. The Lie seeks its own destruction, and gets it in the presence of Truth.
 
 # On God
 
