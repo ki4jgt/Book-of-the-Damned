@@ -137,7 +137,7 @@ What you do to one thing, you do to everything.
 23. You shall know Truth by its ring.
 24. The past forms the present; the future shapes the past. All is Truth.
 25. A fair trade comes at a loss to both sides: A trader values what they're getting more than what they're losing.
-26. Apologize for your transgressions against others and make appropriate restitutions at your loss.
+26. Apologize for your transgressions against others and make appropriate restitution at your loss.
 27. This path is for you alone; it is yours to follow, and yours to abandon.
 28. This text is words. It accomplishes nothing without the heart.
 29. Take responsibility for the world around you. If not you, then whom?
@@ -169,25 +169,29 @@ What you do to one thing, you do to everything.
 55. No two words carry the same meaning.
 56. In the face of the Lie, Truth is always with you.
 57. A man who is scared of himself will be scared of others. The self touches the other and finds Truth.
-58. Learn to heal yourself from those whom life has broken.
-59. Do one thing every day that scares you; a sense of awe keeps the spirits up.
-60. There is a time for superficialities, but true awareness lies deep below the surface.
-61. Advancement is not permission to disregard growth.
-62. Truth does not measure what is deserved; it gives freely. And it gives All.
-63. Educate yourself.
-64. If duress is your only motivator, then you will always require it. And you will pass this requirement to others. Celebrate the completion of even the smallest tasks.
-65. At the end of the journey, when the Lie fades, all that remains is you, and the Truth. How will you fare in its light?
-66. It is possible to commit no mistakes and still lose. That is not weakness; that is life.
-67. Nobility isn't a ruleset for the swine; it's doing the right thing when everyone else refuses.
-68. You must believe that you're the one to change things -- we all must! Otherwise, what's the point?
-69. Learn to turn minor setbacks to your advantage.
-70. Truth keeps all; nothing is wasted.
-71. It is easy to love someone you've never met; real love takes work.
-72. The Lie learns to weave itself in and out of the law. Truth invokes discernment from the heart.
-73. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
-74. It doesn't go away just because you refuse to see it.
-75. If you want something, don't be afraid to ask for it.
-76. Get up and do it again.
+58. The meek shall travel the stars.
+59. Learn to heal yourself from those whom life has broken.
+60. Do one thing every day that scares you; a sense of awe keeps the spirits up.
+61. There is a time for superficialities, but true awareness lies deep below the surface.
+62. Advancement is not permission to disregard growth.
+63. Truth does not measure what is deserved; it gives freely. And it gives All. 
+64. Everything has its moment.
+65. Educate yourself.
+66. If duress is your only motivator, then you will always require it. And you will pass this requirement to others. Celebrate the completion of even the smallest tasks.
+67. At the end of the journey, when the Lie fades, all that remains is you, and the Truth. How will you fare in its light?
+68. It is possible to commit no mistakes and still lose. That is not weakness; that is life.
+69. Nobility isn't a ruleset for the swine; it's doing the right thing when everyone else refuses.
+70. You must believe that you're the one to change things -- we all must! Otherwise, what's the point?
+71. Learn to turn minor setbacks to your advantage.
+72. Truth keeps all; nothing is wasted.
+73. It is easy to love someone you've never met; real love takes work. That's why Jesus is the most loved person on the planet.
+74. We're all living on a speck of dust, traveling through an endless void, that could end at any moment.
+75. The system is a scapegoat.
+76. The Lie learns to weave itself in and out of the law. Truth invokes discernment from the heart.
+77. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
+78. It doesn't go away just because you refuse to see it.
+79. If you want something, don't be afraid to ask for it.
+80. Get up and do it again.
 
 # The Divinity
 
@@ -222,6 +226,34 @@ And always you.
 
 Truth has no need, for it is all. Gentle enough to allow space for every outcome, yet firm enough to avoid being corrupted by them. Mercifully giving, while relentlessly upholding. A gracious host who is master of his domain. Not forceful. Not foreboding. Fully realized.
 
+# Reality
+
+The nature of reality is transactional. For something to exist, there must be space to receive it. 
+
+Water cannot occupy a full cup.
+
+The teeth of a gear latch into the empty space of another.
+
+Even with infinite resources, this remains true. Taking an item from point A to point B means it's no longer at point A, lowering point A's resources.
+
+This is why numbers work. Numbers describe transactions like words describe flowers.
+
+Neither the numbers, nor the words are real. Like words, numbers are imperfect. Their fatal flaw is the assumption that every transaction is the same as every other. Words' is that no two transactions are the same.
+
+Words describe the individual; numbers describe the transaction.
+
+Every transaction affects the entirety. A stack of pallets only gains its height from a collection of single pallets. Remove a pallet from the bottom, and the entire stack falls.
+
+Remove item from point A and there isn't only a cost to point A, but to point B as well. There is an equal benefit to point A. There is an equal benefit to point B.
+
+Neglect point A, and point B suffers. Neglect point B, and point A suffers. Take food from your neighbor's villiage, and their strength depletes. This allows for a quick capture, but at the end of the game, you still have a group of people doing the same things they've always done. Only now, they're less useful to your own villiage, and more of a threat. What you take from them, you essentially take from yourself. All transactions being equal, and Truth never forgetting.
+
+As the conceptual pushes through the physicality, it leaves a print of itself. The body is but the soul, reaching out to a physical world. The soul imprints upon the body. The body imprints upon the world.
+
+As the body exerts force upon its surroundings, Those surroundings exert force upon the body. Everything your push out, you take the mirror image of into yourself. And, like two mirrored oscillating waves, that force reinforces other potential outcomes at their point of intersection. This is where all things are connected.
+
+As consciousness arose from evolution, the concept of consciousness was reflected into us through necessity. Meaning, we reached out for consciousness, and conceptually consciousness, pre-existent before it's corporeal form, reached out to us. And this consciousness is making its way into pets and computers by way of us.
+
 # On Evolution
 
 The animal kingdom doesn't kill the weak; it kills the different.
@@ -240,7 +272,7 @@ For each challenge, there evolves a demand for a solution. And as much as Truth 
 
 Truth spits out all the random potentials it can. Then challenges their existence with other random potentials.
 
-Parts of Truth which fail the challenge are obstructed.
+Parts of Truth which fail the challenge are obstructed, but removal of variation dooms the entire species with a single unknowable challenge.
 
 In the beginning of us, the essentials for life came about many times. It wasn't until Truth added a desire to feed and remain alive that life became more complex. The challenge, in this case, was the desire to stay cohesive -- something with which every lifeform is endowed.
 
@@ -295,9 +327,9 @@ A great surgeon abuses his wife. Do you imprison him? How many children will die
 
 ## The Girl and the Monster (For Mom)
 
-There once was a girl named Emma. And as all humans do, she began her day by opening her eyes. Laying in her bed, still partially dreaming, Something felt off.
+There once was a girl named Emma. And as all humans do, she began her day by opening her eyes. Laying in her bed, still partially dreaming, something felt off.
 
-Nevertheless, she shook this feeling and pushed herself to get up. As she was getting dressed, a dark figure in her mirror started her, and sent her screaming to her mother.
+Nevertheless, she shook this feeling and pushed herself to get up. As she was getting dressed, a dark figure in her mirror startled her, and sent her screaming to her mother.
 
 Having sufficiently calmed her, her mother investigated the situation and found nothing.
 
@@ -326,6 +358,32 @@ Upon arriving at the market, everyone was selling eggs.
 ## The Apple Orchard (Punch to the Face) 
 
 A tornado tore through an apple orchard, ripping every tree from the ground. And year after year, the townsfolk were vexed over why it had happened.
+
+## The Listening Chimp 
+
+A mesmerizer was hosting a talk.
+
+> I can make anyone do as I desire... I control all men.
+
+Stepping from the crowd, a single man came forward to challenge his assertion.
+
+> I don't believe you, he said.
+
+> Feigning ignorance, the mesmerizer shouted, can you come a little closer, please? I cannot hear you. 
+
+The man, now standing right in front of the mesmerizer, the mesmerizer lowered a hidden net from the ceiling, right onto his head.
+
+Putting on many more tricks, the mesmerizer noticed a second man who was falling for none of them.
+
+At the end of his talk, he raised his hands (palm up), and asked everyone to leave.
+
+The second man still remaining seated, the mesmerizer walked towards him.
+
+> How have you avoided all of my tricks? 
+
+> What? I'm deaf, said the man.
+
+The mesmerizer walked right in front of him, and the wise old man hit the mesmerizer in the head with his cane, stood up and left.
 
 # On God
 
