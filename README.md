@@ -159,7 +159,7 @@ What you do to one thing, you do to everything.
 45. Do not make promises or swear oaths. Let others see the integrity of your words through your actions.
 46. The Lie thrives in the hearts of men when they aren't connected to the Truth, or themselves.
 47. Evil justifies its actions as necessary.
-48. Truth is beyond numbering, tribal markings, logic, or rankings.
+48. Truth is beyond numbering, tribal markings, logic, or rankings. Know one another by the fruit you bear.
 49. Truth has neither will nor intent; all  is its nature.
 50. Why share something if it can't be used?
 51. Competition breeds innovation; it also breeds cheating.
@@ -173,25 +173,26 @@ What you do to one thing, you do to everything.
 59. Learn to heal yourself from those whom life has broken.
 60. Do one thing every day that scares you; a sense of awe keeps the spirits up.
 61. There is a time for superficialities, but true awareness lies deep below the surface.
-62. Advancement is not permission to disregard growth.
-63. Truth does not measure what is deserved; it gives freely. And it gives All. 
-64. Everything has its moment.
-65. Educate yourself.
-66. If duress is your only motivator, then you will always require it. And you will pass this requirement to others. Celebrate the completion of even the smallest tasks.
-67. At the end of the journey, when the Lie fades, all that remains is you, and the Truth. How will you fare in its light?
-68. It is possible to commit no mistakes and still lose. That is not weakness; that is life.
-69. Nobility isn't a ruleset for the swine; it's doing the right thing when everyone else refuses.
-70. You must believe that you're the one to change things -- we all must! Otherwise, what's the point?
-71. Learn to turn minor setbacks to your advantage.
-72. Truth keeps all; nothing is wasted.
-73. It is easy to love someone you've never met; real love takes work. That's why Jesus is the most loved person on the planet.
-74. We're all living on a speck of dust, traveling through an endless void, that could end at any moment.
-75. The system is a scapegoat.
-76. The Lie learns to weave itself in and out of the law. Truth invokes discernment from the heart.
-77. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
-78. It doesn't go away just because you refuse to see it.
-79. If you want something, don't be afraid to ask for it.
-80. Get up and do it again.
+62. You can say, "the Lie isn't my master," but the rules you play by betray you.
+63. Advancement is not permission to disregard growth; turn around and help the next in line.
+64. Truth does not measure what is deserved; it gives freely. And it gives All. 
+65. Everything has its moment.
+66. Educate yourself.
+67. If duress is your only motivator, then you will always require it. And you will pass this requirement to others. Celebrate the completion of even the smallest tasks.
+68. At the end of the journey, when the Lie fades, all that remains is you, and the Truth. How will you fare in its light?
+69. It is possible to commit no mistakes and still lose. That is not weakness; that is life.
+70. Nobility isn't a ruleset for the swine; it's doing the right thing when everyone else refuses.
+71. You must believe that you're the one to change things -- we all must! Otherwise, what's the point?
+72. Learn to turn minor setbacks to your advantage.
+73. Truth keeps all; nothing is wasted.
+74. It is easy to love someone you've never met; real love takes work. That's why Jesus is the most loved person on the planet.
+75. We're all living on a speck of dust, traveling through an endless void, that could end at any moment.
+76. The system is a scapegoat.
+77. The Lie learns to weave itself in and out of the law. Truth invokes discernment from the heart.
+78. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
+79. It doesn't go away just because you refuse to see it.
+80. If you want something, don't be afraid to ask for it.
+81. Get up and do it again.
 
 # The Divinity
 
@@ -385,6 +386,14 @@ The second man still remaining seated, the mesmerizer walked towards him.
 
 The mesmerizer walked right in front of him, and the wise old man hit the mesmerizer in the head with his cane, stood up and left.
 
+## The Powerful Dog
+
+A man, a dog, and a demon were imprisoned in a cage.
+
+The demon beat the man. The man beat the dog.
+
+The dog placed his neck between the cage bars and broke it, leaving only the man, the demon, and a rotting corpse.
+
 # On God
 
 There seems to be an order to all of this. Just as the desire for cohesion eventually arose from randomness -- it was the only thing which could -- so too do pre-established rules arise from freedom. And we seem not to be able to proceed without acknowledging them. A desire for cohesion and stasis from fundamental forces, before life can begin.
@@ -454,5 +463,11 @@ The void stirs. The Lie collapses into itself, becoming smaller, quieter, retrea
 The Lie seeks to end its own existence, and because Truth is all things, to accomplish this, the Lie seeks to destroy Truth itself.
 
 There is no sin in personal identity, nor in contrasting Truth. Only in an attempted destruction of Truth to achieve these things.
+
+# Customs (Optional)
+
+1. A pendant may be worn about the neck, as a private focal point for Truth. The entirety of everything flows through this point, as with all things.
+2. Record the names of the dead. Each one taught you Truth.
+3. Construct a living shape (game of Go) inside the casket of the obstructed.
 
 Book of the Damned by Anonymous is released into the public domain. No rights reserved!
