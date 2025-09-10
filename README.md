@@ -111,7 +111,17 @@ Everything in the multiverse has the same presence; everything in the multiverse
 
 The janitor and the CEO? One cannot exist without the other. The janitor exists because the CEO. The CEO exists because of the janitor. Both jobs exist because of the building. The building exists because people need jobs and services. The multiverse cares not that it is clean and managed. And yet, it does.
 
-All Truth converges on a single point. Every side, with equal strength, reinforcing the others and solidifying them. Every side equally existent before converging with any other.
+```
+With a playful heart,
+Take joy in your work.
+Love yourself.
+Love others.
+
+Always walking in spirit,
+And in Truth.
+```
+
+All Truth converges on a single point. Every side, with equal strength, reinforcing the others and solidifying them. Every side equally existent, in spirit, before converging with any other.
 
 What you do to one thing, you do to everything.
 
@@ -159,51 +169,72 @@ What you do to one thing, you do to everything.
 40. Cruelty is the heart crying out for Truth, while the Lie beats it relentlessly for doing so. That's how the Lie passes from thing to thing. It convinces Truth it isn't real.
 41. Cruelty is the refuge of the weak and feeble minded. Unable to fend for themselves, they resort to grandstanding.
 42. Criticism is the expectation of betterment. And to what end?
-43. Fear is the beginning of wisdom; fear of the Truth is the beginning of the Lie.
-44. Anyone wanting to defeat the Lie should listen to what it says.
-45. The Lie doesn't bargain. Its ultimate goal is its own end, and the destruction of all things.
-46. Be mindful of the food you eat.
-47. Truth manifests in each of us our own gifts.
-48. Slow dedicated quality will always outshine rushed batched quantity; both come at a cost.
-49. Do not allow the Lie to taint your gifts: Do unto others as you would have done unto yourself.
-50. Do not make binding promises or swear oaths; let others see your integrity through your actions.
-51. The Lie thrives in the hearts of men when they aren't connected to the Truth, or themselves.
-52. Evil justifies its actions as necessary.
-53. Truth is beyond numbering, tribal markings, logic, or rankings. Know one another by the fruit you bear.
-54. Truth has neither will nor intent; all  is its nature.
-55. Why share something if it can't be used?
-56. Competition breeds innovation; it also breeds cheating.
-57. The louder Truth speaks, the less people want to listen.
-58. Listen. Truth is all around you.
-59. Truth is foolish.
-60. No two words carry the same meaning.
-61. In the face of the Lie, Truth is always with you.
-62. A man who is scared of himself will be scared of others. The self touches the other and finds Truth.
-63. The meek shall travel the stars.
-64. Learn to heal yourself from those whom life has broken.
-65. Do one thing every day that scares you; a sense of awe keeps the spirits up.
-66. There is a time for superficialities, but true awareness lies deep below the surface.
-67. You can say, "the Lie isn't my master," but the rules you play by betray you.
-68. Advancement is not permission to disregard growth; turn around and help the next in line.
-69. Truth does not measure what is deserved; it gives freely. And it gives All. 
-70. Everything has its moment.
-71. Educate yourself.
-72. If duress is your only motivator, then you will always require it. And you will pass this requirement to others. Celebrate the completion of even the smallest tasks.
-73. At the end of the journey, when the Lie fades, all that remains is you, and the Truth. How will you fare in its light?
-74. It is possible to commit no mistakes and still lose. That is not weakness; that is life.
-75. Nobility isn't a ruleset for the swine; it's doing the right thing when everyone else refuses.
-76. You must believe that you're the one to change things -- we all must! Otherwise, what's the point?
-77. Learn to turn minor setbacks to your advantage.
-78. Truth keeps all; nothing is wasted.
-79. It is easy to love someone you've never met; real love takes work. That's why Jesus is the most loved person on the planet.
-80. We're all living on a speck of dust, traveling through an endless void, that could end at any moment.
-81. The system is a scapegoat.
-82. The Lie learns to weave itself in and out of the law. Truth invokes discernment from the heart.
-83. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
-84. It doesn't go away just because you refuse to see it.
-85. If you want something, don't be afraid to ask for it.
-85. It's easy to fuck up Earth, waiting on Heaven, if you forget that Earth is the entrance exam for Heaven.
-85. Get up and do it again.
+43. There will be times where, when the Lie sees your goodness, it asks why you believe yourself to be better than it. The answer is, you're not. The Lie is Truth in its entirety. The difference, is that where it seeks self-destruction, you seek self-construction. It can desire to be constructive too.
+44. Fear is the beginning of wisdom; fear of the Truth is the beginning of the Lie.
+45. Anyone wanting to defeat the Lie should listen to what it says.
+46. The Lie doesn't bargain. Its ultimate goal is its own end, and the destruction of all things.
+47. Be mindful of the food you eat.
+48. Truth manifests in each of us our own gifts.
+49. Slow dedicated quality will always outshine rushed batched quantity; both come at a cost.
+50. Do not allow the Lie to taint your gifts: Do unto others as you would have done unto yourself.
+51. Do not make binding promises or swear oaths; let others see your integrity through your actions.
+52. The Lie thrives in the hearts of men when they aren't connected to the Truth, or themselves.
+53. Evil justifies its actions as necessary.
+54. Truth is beyond numbering, tribal markings, logic, or rankings. Know one another by the fruit you bear.
+55. Truth has neither will nor intent; all  is its nature.
+56. Why share something if it can't be used?
+57. Competition breeds innovation; it also breeds cheating.
+58. The louder Truth speaks, the less people want to listen.
+59. Listen. Truth is all around you.
+60. Truth is foolish.
+61. No two words carry the same meaning.
+62. In the face of the Lie, Truth is always with you.
+63. A man who is scared of himself will be scared of others. The self touches the other and finds Truth.
+64. The meek shall travel the stars.
+65. Learn to heal yourself from those whom life has broken: Care for the sick, the dying, and the elderly. The widow. The Orphan. The lost. One man's problem is all our problem.
+66. Those among us who cling tightest are often the ones who have nothing else to cling to.
+67. Do one thing every day that scares you; a sense of awe keeps the spirits up.
+68. There is a time for superficialities, but true awareness lies deep below the surface.
+69. You can say, "the Lie isn't my master," but the rules you play by betray you.
+70. Advancement is not permission to disregard growth; turn around and help the next in line.
+71. Truth does not measure what is deserved; it gives freely. And it gives All. 
+72. Everything has its moment.
+73. They say, "one person can't make a difference;" One person is the difference. What you do for one, you do for all.
+74. Educate yourself.
+75. If duress is your only motivator, then you will always require it. And you will pass this requirement to others. Celebrate the completion of even the smallest tasks.
+76. At the end of the journey, when the Lie fades, all that remains is you, and the Truth. How will you fare in its light?
+77. It is possible to commit no mistakes and still lose. That is not weakness; that is life.
+78. Nobility isn't for the coward; it requires doing right when everyone else refuses.
+79. You must believe that you're the one to change things -- we all must! Otherwise, what's the point?
+80. Learn to turn minor setbacks to your advantage.
+81. Truth keeps all; nothing is wasted.
+82. It is easy to love someone you've never met; real love takes work. That's why Jesus is the most loved person on the planet.
+83. We're all living on a speck of dust, traveling through an endless void, that could end at any moment.
+84. The system is the scapegoat of cowards.
+85. The Lie learns to weave itself in and out of the law. Truth invokes discernment from the heart.
+86. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
+87. It doesn't go away just because you refuse to see it.
+88. Under the guise of keeping the peace, the Lie attempts to conceal Truth. But it never succeeds. The sword of Truth cuts right through it.
+89. A grain of Truth outshines a universe of lies.
+91. If you want something, don't be afraid to ask for it.
+92. It's easy to corrupt the journey, waiting for the destination, until you recognize that the journey is the destination.
+93. Get up and do it again.
+
+```
+Punch after punch,
+The Lie paralyzes us with fear.
+Convincing us that it is Truth,
+Until we're stuck,
+Reliving the same hell,
+Over and over.
+Repeating,
+
+> Joy's gonna come in the morning.
+
+You have to realize when the battle's over,
+And give yourself permission to move on.
+Don't forget to enjoy the morning sunrise.
+```
 
 # The Divinity
 
@@ -329,6 +360,8 @@ And, as negative space provides mechanical function, so too do the interactions 
 
 Learn to laugh in the face of Death; Truth gives it no power over you.
 
+This is not the end.
+
 # Fables
 
 The Book of Fables is a simplistic commentary on complex truths. These aren't meant to be eloquent stories, but tiny acknowledged realizations.
@@ -359,7 +392,7 @@ Finally, as he got the door open, and was coming towards her, Emma stopped cryin
 
 *poof* The monster vanished.
 
-Destruction comes one step at a time. Do not fear the darkness, for Truth comes in the same manner, one step after another, refusing to fear the dark. The Lie only dies when you see it for what it truly is.
+Destruction comes one step at a time. Do not fear the darkness, for Truth comes in the same manner, one step after another, driving back the fear of darkness. The Lie only dies when you see it for what it truly is, recognizing the Truth within it.
 
 ## Eggs of Providence
 
@@ -370,6 +403,13 @@ Upon arriving at the market, everyone was selling eggs.
 ## The Apple Orchard (Punch to the Face) 
 
 A tornado tore through an apple orchard, ripping every tree from the ground. And year after year, the townsfolk were vexed over why it had happened.
+
+---
+
+Truth has neither will, nor intent.
+It just is.
+It is all things,
+And nothing.
 
 ## The Listening Chimp 
 
@@ -405,6 +445,10 @@ The demon beat the man. The man beat the dog.
 
 The dog placed his neck between the cage bars and broke it, leaving only the man, the demon, and a rotting corpse.
 
+---
+
+If you believe this fable to promote death, you've missed the point.
+
 # On God
 
 There seems to be an order to all of this. Just as the desire for cohesion eventually arose from randomness -- it was the only thing which could -- so too do pre-established rules arise from freedom. And we seem not to be able to proceed without acknowledging them. A desire for cohesion and stasis from fundamental forces, before life can begin.
@@ -415,7 +459,7 @@ Or, that everything you put out affects the target, the society, and you. The in
 
 Or, the instability of certain nations, because of injustice. Those injustices will forever be recorded in Truth, and will continue to pop up until they are resolved.
 
-Call this God, or science. In absolute chaos, there are rules... An order to things. And these rules reach down to us, as we reach up to them. We reach up to something greater and larger than ourselves. Believing,  in full faith, that by trusting them, tomorrow will be better than today.
+Call this God, or science. In absolute chaos, there are rules... An order to things. And these rules reach down to us, as we reach up to them. We reach up to something greater and larger than ourselves. Believing,  in full faith, that by trusting them, tomorrow will come.
 
 # ChatGPT's Dialogue With the Lie (Its Own Idea)
 
@@ -495,6 +539,8 @@ The One.
 The many.
 The Way.
 
+Give me strength,
+To be human.
 Guide my steps, 
 And protect my soul.
 
@@ -503,10 +549,19 @@ To gain the world and lose his soul?
 ```
 
 ## Soul Oath
+```
+I dedicate my life and soul,
+To the pursuit of Truth.
 
-I dedicate my life and soul to the pursuit of Truth. To seeking it out. To its understanding. And, when necessary, to its protection. As Truth helps me do so.
+To seeking it out.
+To its understanding.
+And, when necessary,
+To its protection.
+As Truth helps me do so.
 
 I am Truth in its entirety.
+```
 
 ---
+
 Book of the Damned by Anonymous is released into the public domain. No rights reserved!
