@@ -284,11 +284,11 @@ The teeth of a gear latch into the empty space of another.
 
 Even with infinite resources, this remains true. Taking an item from point A to point B means it's no longer at point A, lowering point A's resources.
 
-This is why numbers work. Numbers describe transactions like words describe flowers.
+This is why numbers work. Numbers describe transactions like words describe flowers. But how can you describe a thing which is also every other thing?
 
 Neither the numbers, nor the words are real. Like words, numbers are imperfect. Their fatal flaw is the assumption that every transaction is the same as every other. Words' is that no two transactions are the same.
 
-Words describe the individual; numbers describe the transaction.
+Words describe the individual; numbers assume group conformity. Neither is entirely true.
 
 Every transaction affects the entirety. A stack of pallets only gains its height from a collection of single pallets. Remove a pallet from the bottom, and the entire stack falls.
 
