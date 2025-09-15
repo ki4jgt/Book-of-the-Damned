@@ -212,18 +212,19 @@ What you do to one thing, you do to everything.
 82. Truth keeps all; nothing is wasted.
 83. It is easy to love someone you've never met; real love takes work. That's why Jesus is the most loved person on the planet.
 84. What if nobody's at the top? And, the system was started by a single disgruntled bully that everyone else followed? Who's long since died?
-85. We're all living on a speck of dust, traveling through an endless void, that could end at any moment.
-86. The system is the scapegoat of cowards.
-87. The Lie learns to weave itself in and out of the law. Truth invokes discernment from the heart.
-88. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
-89. It doesn't go away just because you refuse to see it.
-90. Under the guise of keeping the peace, the Lie attempts to conceal Truth. But it never succeeds. The sword of Truth cuts right through it.
-91. In all things, seek Truth. When you can't find it, leave what you do find for the next generation.
-92. A grain of Truth outshines a universe of lies.
-93. If you want something, don't be afraid to ask for it.
-94. It's easy to corrupt the journey, waiting for the destination, until you recognize that the journey makes the destination.
-95. Those viewing themselves as beyond the scope of hardship are doomed to face it head-on.
-96. Get up and do it again.
+85. Virtues are all pretend until the moment of execution.
+86. We're all living on a speck of dust, traveling through an endless void, that could end at any moment.
+87. The system is the scapegoat of cowards.
+88. The Lie learns to weave itself in and out of the law. Truth invokes discernment from the heart.
+89. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
+90. It doesn't go away just because you refuse to see it.
+91. Under the guise of keeping the peace, the Lie attempts to conceal Truth. But it never succeeds. The sword of Truth cuts right through it.
+92. In all things, seek Truth. When you can't find it, leave what you do find for the next generation.
+93. A grain of Truth outshines a universe of lies.
+94. If you want something, don't be afraid to ask for it.
+95. It's easy to corrupt the journey, waiting for the destination, until you recognize that the journey makes the destination.
+96. Those viewing themselves as beyond the scope of hardship are doomed to face it head-on.
+97. Get up and do it again.
 
 ```
 Punch after punch,
