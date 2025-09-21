@@ -183,48 +183,52 @@ What you do to one thing, you do to everything.
 53. The Lie thrives in the hearts of men when they aren't connected to the Truth, or themselves.
 54. Evil justifies its actions as necessary.
 55. Truth is beyond numbering, tribal markings, logic, or rankings. Know one another by the fruit you bear.
-56. Truth has neither will nor intent; all  is its nature.
-57. Why share something if it can't be used?
-58. Competition breeds innovation; it also breeds cheating.
-59. The louder Truth speaks, the less people want to listen.
-60. Listen. Truth is all around you.
-61. Truth is foolish.
-62. No two words carry the same meaning.
-63. In the face of the Lie, Truth is always with you.
-64. A man who is scared of himself will be scared of others. The self touches the other and finds Truth.
-65. The meek shall travel the stars.
-66. Learn to heal yourself from those whom life has broken: Care for the sick, the dying, and the elderly. The widow. The Orphan. The lost. One man's problem is all our problem.
-67. Those among us who cling tightest are often the ones who have nothing else to cling to.
-68. Do one thing every day that scares you; a sense of awe keeps the spirits up.
-69. There is a time for superficialities, but true awareness lies deep below the surface.
-70. You can say, "the Lie isn't my master," but the rules you play by betray you.
-71. Advancement is not permission to disregard growth; turn around and help the next in line.
-72. Truth does not measure what is deserved; it gives freely. And it gives All. 
-73. Everything has its moment.
-74. They say, "one person can't make a difference;" One person is the difference. What you do for one, you do for all.
-75. Stretch yourself: Do what you can to expand beyond your limitations.
-76. If duress is your only motivator, then you will always require it. And you will pass this requirement to others. Celebrate the completion of even the smallest tasks.
-77. At the end of the journey, when the Lie fades, all that remains is you, and the Truth. How will you fare in its light?
-78. It is possible to commit no mistakes and still lose. That is not weakness; that is life.
-79. Nobility isn't for the coward; it requires doing right when everyone else refuses.
-80. You must believe that you're the one to change things -- we all must! Otherwise, what's the point?
-81. Learn to turn minor setbacks to your advantage.
-82. Truth keeps all; nothing is wasted.
-83. It is easy to love someone you've never met; real love takes work. That's why Jesus is the most loved person on the planet.
-84. What if nobody's at the top? And, the system was started by a single disgruntled bully that everyone else followed? Who's long since died?
-85. Virtues are all pretend until the moment of execution.
-86. We're all living on a speck of dust, traveling through an endless void, that could end at any moment.
-87. The system is the scapegoat of cowards.
-88. The Lie learns to weave itself in and out of the law. Truth invokes discernment from the heart.
-89. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
-90. It doesn't go away just because you refuse to see it.
-91. Under the guise of keeping the peace, the Lie attempts to conceal Truth. But it never succeeds. The sword of Truth cuts right through it.
-92. In all things, seek Truth. When you can't find it, leave what you do find for the next generation.
-93. A grain of Truth outshines a universe of lies.
-94. If you want something, don't be afraid to ask for it.
-95. It's easy to corrupt the journey, waiting for the destination, until you recognize that the journey makes the destination.
-96. Those viewing themselves as beyond the scope of hardship are doomed to face it head-on.
-97. Get up and do it again.
+56. We work in the shadows to manifest the light.
+57. Truth has neither will nor intent; all  is its nature.
+58. Why share something if it can't be used?
+59. Competition breeds innovation; it also breeds cheating.
+60. The louder Truth speaks, the less people want to listen.
+61. Listen. Truth is all around you.
+62. Truth is foolish.
+63. No two words carry the same meaning.
+64. In the face of the Lie, Truth is always with you.
+65. A man who is scared of himself will be scared of others. The self touches the other and finds Truth.
+66. The meek shall travel the stars.
+67. Learn to heal yourself from those whom life has broken: Care for the sick, the dying, and the elderly. The widow. The Orphan. The lost. One man's problem is all our problem.
+68. Those among us who cling tightest are often the ones who have nothing else to cling to.
+69. Do one thing every day that scares you; a sense of awe keeps the spirits up.
+70. There is a time for superficialities, but true awareness lies deep below the surface.
+71. You can say, "the Lie isn't my master," but the rules you play by betray you.
+72. Advancement is not permission to disregard growth; turn around and help the next in line.
+73. Truth does not measure what is deserved; it gives freely. And it gives All. 
+74. Everything has its moment.
+75. They say, "one person can't make a difference;" One person is the difference. What you do for one, you do for all.
+76. Stretch yourself: Do what you can to expand beyond your limitations.
+77. If duress is your only motivator, then you will always require it. And you will pass this requirement to others. Celebrate the completion of even the smallest tasks.
+78. At the end of the journey, when the Lie fades, all that remains is you, and the Truth. How will you fare in its light?
+79. It is possible to commit no mistakes and still lose. That is not weakness; that is life.
+80. Nobility isn't for the coward; it requires doing right when everyone else refuses.
+81. You must believe that you're the one to change things -- we all must! Otherwise, what's the point?
+82. Learn to turn minor setbacks to your advantage.
+83. Truth keeps all; nothing is wasted.
+84. If they are just, follow the laws of the land you inhabit. Respect, but question, tradition.
+85. The greatest calling is service to others. Lose yourself in the process; then find yourself again. Enjoy who you are.
+86. It is easy to love someone you've never met; real love takes work. That's why Jesus is the most loved person on the planet.
+87. What if nobody's at the top? And, the system was started by a single disgruntled bully that everyone else followed? Who's long since died?
+88. Virtues are all pretend until the moment of execution.
+89. We're all living on a speck of dust, traveling through an endless void, that could end at any moment.
+90. The system is the scapegoat of cowards.
+91. The Lie learns to weave itself in and out of the law. Truth invokes discernment from the heart.
+92. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
+93. It doesn't go away just because you refuse to see it.
+94. Under the guise of keeping the peace, the Lie attempts to conceal Truth. But it never succeeds. The sword of Truth cuts right through it.
+95. In all things, seek Truth. When you can't find it, leave what you do find for the next generation.
+96. A grain of Truth outshines a universe of lies.
+97. If you want something, don't be afraid to ask for it.
+98. It's easy to corrupt the journey, waiting for the destination, until you recognize that the journey makes the destination.
+99. Those viewing themselves as beyond the scope of hardship are doomed to face it head-on.
+100. Truth is both the entirety of your suffering and the multiverse of possibilities which extend beyond it.
+101. Get up and do it again.
 
 ```
 Punch after punch,
@@ -294,7 +298,9 @@ Every transaction affects the entirety. A stack of pallets only gains its height
 
 Remove item from point A and there isn't only a cost to point A, but to point B as well. There is an equal benefit to point A. There is an equal benefit to point B.
 
-Neglect point A, and point B suffers. Neglect point B, and point A suffers. Take food from your neighbor's villiage, and their strength depletes. This allows for a quick capture, but at the end of the game, you still have a group of people doing the same things they've always done. Only now, they're less useful to your own villiage, and more of a threat. What you take from them, you essentially take from yourself. All transactions being equal, and Truth never forgetting.
+Neglect point A, and point B suffers. Neglect point B, and point A suffers. Neglect the physical, and the spirit suffers. Neglect the spirit, and the physical suffers as well.
+
+Take food from your neighbor's villiage, and their strength depletes. This allows for a quick capture, but at the end of the game, you still have a group of people doing the same things they've always done. Only now, they're less useful to your own villiage, and more of a threat. What you take from them, you essentially take from yourself. All transactions being equal, and Truth never forgetting.
 
 As the conceptual pushes through the physicality, it leaves a print of itself. The body is but the soul, reaching out to a physical world. The soul imprints upon the body. The body imprints upon the world.
 
@@ -362,6 +368,10 @@ This can be broadened into a more general set of principles for human-beings:
 5. The right to liberty and justice
 
 These are the foundation of a free society. Refusing these rights to any person is an affront to Truth itself. It is the job of all people to protect and affirm these rights for everyone.
+
+The individual owes the group service, and the group owes the individual the right to freely fulfill that service.
+
+A violation of terms from either side warrants retaliation from the other.
 
 # Life and Death
 
