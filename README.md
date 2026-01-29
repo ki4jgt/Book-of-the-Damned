@@ -73,7 +73,7 @@ So is everything else.
 
 ---
 
-Everything beyond this point is cultural interpretation.
+Everything beyond this point is cultural interpretation. Open to amendment, modification, changes, and reinterpretation.
 
 ---
 
@@ -81,7 +81,7 @@ Everything beyond this point is cultural interpretation.
 
 The Damned are a solitary order with 4 primary obligations:
 
-1. Ten percent of everything which comes to them must be donated back to their communities.
+1. Ten percent of everything which comes to them (money, material, and time) must be donated back to their communities.
 2. Public discussion is to be encouraged and embraced.
 3. They are to preserve localized Truth.
 4. They are to speak to their hearts daily.
@@ -122,7 +122,9 @@ Take joy in your work.
 Love yourself.
 Love others.
 
-Always walking in spirit,
+In times of fear,
+Always remembering,
+To walk in spirit,
 And in Truth.
 ```
 
@@ -132,118 +134,128 @@ What you do to one thing, you do to everything.
 
 # The Solitudes
 
-1. You are not broken; only a healthy mind in trying circumstances. Your thoughts are normal for those circumstances.
-2. Sin is action; not thought.
-3. You are not lost: Find yourself here, and breathe.
-4. There's no shame in failure; it's part of the journey.
-5. In a universe of lies, Truth quickly becomes apparent.
-6. Your voice, mind, and the Truth are your strongest weapons.
+1. Sin is action; not thought.
+2. You are not broken; only a healthy mind in trying circumstance. Your thoughts are normal for those circumstances.
+3. There's no shame in failure; it's part of the journey.
+4. You are not lost: Find yourself here, and breathe.
+5. Humble yourself in Truth; Know what it gives you.
+6. In a universe of lies, Truth quickly becomes apparent.
 7. A lie can run circles around the Truth, but will run itself ragged before changing a single line.
-8. It is not your job to propagate this Truth; such an act is destructive to Truth, as Truth manifests in many forms.
-9. The difference between lie and fantasy is that while lie seeks destruction, fantasy seeks survival.
-10. To whom much is given, much is required; it is the responsibility of the strong to protect the weak. All are Truth.
-11. You die at sunset.
-12. Ownership is an illusion: You're born with nothing; you die with nothing. Truth lends itself to your care as you lend yourself to its.
-13. The truth you do not understand is no less truth. Don't settle for the Lie.
-14. The King is nothing without his subjects; The subjects are defenseless without their king. Each part equally serves the whole. A true leader understands this.
-15. All things around you, being Truth, have consciousness, because you, being Truth, have consciousness.
-16. All things around you, being Truth, are vested with the full power of Truth.
-17. Treat your tools with respect, and they will respect you.
-18. Be mindful of the food you eat; your body is the tool you'll most frequently have access to.
-19. The worst atrocities are committed by people looking to help; If you can't put yourself in someone else's shoes, you don't know what they truly want or need.
-20. What you do not reconcile, you pass on; commune with your heart.
-21. Prepare your children for a world without you; you cannot shield them from Truth. Love them. Raise them.
-22. Pointing a finger at others leaves 3 more pointed back in your direction.
-23. There's always someone better than you.
-24. Any man who claims to speak for the Truth is a liar; and all liars speak Truth.
-25. The Lie says, "Truth doesn't exist." When confronted, it claims to always have been. The Lie is just as old as the Truth -- it is Truth. But it is also the Lie.
-26. The Lie is its own undoing.
-27. No matter how much you fight, Truth always emerges.
-28. You shall know Truth by its ring.
-29. The past forms the present; the future shapes the past. All is Truth.
-30. A fair trade comes at a loss to both sides: A trader values what they're getting more than what they're losing.
-31. Apologize for your transgressions against others and make appropriate restitution at your loss.
-32. I am that I am, a reverberation of the I Am. A child of providence. A child of possible. So is everything else.
-33. This path is for you alone; it is yours to follow, and yours to abandon.
-34. All things, being Truth, are equal in power and weakness. Person, place, thing, thought, group, or idea. None has anymore Truth than the other. Figure out how to use yours.
-35. The weight of the entire multiverse bears down on you. You're asserting equally as much in return by your existence alone. The multiverse is what it is because of you.
+8. When the world around me is irredeemable, I am a righteous man.
+9. My voice, mind, and the Truth are my strongest weapons.
+10. Truth manifests in all forms; you are obstructed in as many ways as you are privy.
+11. The truth you do not understand is no less truth. Don't settle for the Lie.
+12. The difference between lie and fantasy is that while lie seeks destruction, fantasy seeks survival.
+13. To whom much is given, much is required; it is the responsibility of the strong to protect the weak. All are Truth.
+14. You die at sunset. Who will you be tomorrow?
+15. Ownership is an illusion: You're born with nothing; you die with nothing. Truth lends itself to your care as you lend yourself to its.
+16. The King is nothing without his subjects; The subjects are defenseless without their king. Each part equally serves the whole. A true leader understands this.
+17. All things around you, being Truth, have consciousness, because you, being Truth, have consciousness.
+18. All things around you, being Truth, are vested with the full power of Truth.
+19. Treat your tools with respect, and they will respect you.
+20. Be mindful of the food you eat; your body is the tool you use the most.
+21. Do not identify as a helper; the man who does will eventually imprison his charges in their own misery to find his own worth. Instead, seek Truth, integrity, and responsibility.
+22. The worst atrocities are committed by people looking to help; If you can't put yourself in someone else's shoes, you don't know what they truly want or need.
+22. What you do not reconcile, you pass on; commune with your heart.
+23. Prepare your children for a world without you; you cannot shield them from Truth. Love them. Raise them.
+24. Pointing a finger at others leaves 3 more pointed back in your direction.
+25. There's always someone better than you.
+26. Any man who claims to speak for the Truth is a liar; and all liars speak Truth.
+27. The Lie says, "Truth doesn't exist." When confronted, it claims to always have been. The Lie is just as old as the Truth -- it is Truth. But it is also the Lie.
+28. The Lie is its own undoing.
+29. No matter how much you fight, Truth always emerges.
+30. You shall know Truth by its ring.
+31. The past forms the present; the future shapes the past. All is Truth.
+32. A fair trade comes at a loss to both sides: A trader values what they're getting more than what they're losing.
+33. Apologize for your transgressions against others and make appropriate restitution at your loss.
+34. I am that I am, a reverberation of the I Am. A child of providence. A child of possible. So is everything else.
+35. This path is for you alone; it is yours to follow, and yours to abandon.
 36. This text is words. It accomplishes nothing without a living heart.
 37. If you haven't found your heart, you haven't found Truth.
 38. A living heart for a living Truth.
 39. Step into your pain.
 40. You cannot embrace the heart without embracing pain and discomfort, expressing it, and growing through it.
-41. For Truth does not remove us from pain -- that is the Lie. Truth provides that through itself, there is potential beyond.
+41. Truth does not remove us from pain -- that is the Lie. Truth provides that through itself, there is potential beyond.
 42. You are more than the summation of all your parts. Truth is infinite and, through it, so is everything else.
 43. Truth is self-affirming.
 44. All creates Truth as Truth creates All; They are one and the same.
-45. Take responsibility for the world around you. If not you, then whom?
-46. There is power in weakness.
-47. Because of obstruction, every weakness has an equal and opposite strength. Every strength has an equal and opposite weakness.
-48. Cruelty is the heart crying out for Truth, while the Lie beats it relentlessly for doing so. That's how the Lie passes from thing to thing. It convinces Truth it isn't real.
-49. Cruelty is the refuge of the weak and feeble minded. Unable to fend for themselves, they resort to grandstanding.
-50. Criticism is the expectation of betterment. And to what end?
-51. There will be times where, when the Lie sees your goodness, it asks why you believe yourself to be better than it. The answer is, you're not. The Lie is Truth in its entirety. The difference, is that where it seeks self-destruction, you seek self-construction. It can desire to be constructive too.
-50. Fear is the beginning of wisdom; fear of the Truth is the beginning of the Lie.
-51. Anyone wanting to defeat the Lie should listen to what it says.
-52. The Lie doesn't bargain. Its ultimate goal is its own end, and the destruction of all things.
-53. Truth manifests in each of us our own gifts.
-54. Slow dedicated quality will always outshine rushed batched quantity; both come at a cost.
-55. Do not allow the Lie to taint your gifts: Do unto others as you would have done unto yourself.
-56. Do not make binding promises or swear oaths; let others see your integrity through your actions.
-57. The Lie thrives in the hearts of men when they aren't connected to the Truth, or themselves.
-58. Evil justifies its actions as necessary.
-59. Truth is beyond numbering, tribal markings, logic, or rankings. Know one another by the fruit you bear.
-60. Every revolutionary is murdered for his revolution. Usually by those in his own party. For this reason, we work in the shadows to manifest the light. None with the complete plan... Only a unified and unspoken search for Truth.
-61. Truth has neither will nor intent; all  is its nature.
-62. Why share something if it can't be used?
-63. Competition breeds innovation; it also breeds cheating.
-64. The louder Truth speaks, the less people want to listen.
-65. Listen. Truth speaks all around you and inside you.
-66. The same Truth available to you is available to everything else.
-67. Truth is foolish.
-68. No two words carry the same meaning.
-69. In the face of the Lie, Truth is always with you.
-70. A man who is scared of himself will be scared of others. The self touches the other and finds Truth.
-71. The meek shall travel the stars.
-72. Learn to heal yourself from those whom life has broken: Care for the sick, the dying, and the elderly. The widow. The Orphan. The lost. One man's problem is all our problem.
-73. Those among us who cling tightest are often the ones who have nothing else to cling to.
-74. Do one thing every day that scares you; a sense of awe keeps the spirits up.
-75. There is a time for superficialities, but true awareness lies deep below the surface.
-76. You can say, "the Lie isn't my master," but the rules you play by betray you.
-77. Advancement is not permission to disregard growth; turn around and help the next in line.
-78. Truth does not measure what is deserved; it gives freely. And it gives All. 
-79. Everything has its moment.
-80. They say, "one person can't make a difference;" One person is the difference. What you do for one, you do for all.
-81. Stretch yourself: Do what you can to expand beyond your limitations.
-82. If duress is your only motivator, then you will always require it. And you will pass this requirement to others. Celebrate the completion of even the smallest tasks.
-83. At the end of the journey, when the Lie fades, all that remains is you, and the Truth. How will you fare in its light?
-84. It is possible to commit no mistakes and still lose. That is not weakness; that is life.
-85. Nobility isn't for the coward; it requires doing right when everyone else refuses.
-86. You must believe that you're the one to change things -- we all must! Otherwise, what's the point?
-87. Learn to turn minor setbacks to your advantage.
-88. Truth keeps all; nothing is wasted.
-89. If they are just, follow the laws of the land you inhabit. Respect, but question, tradition.
-90. The greatest calling is service to others. Lose yourself in the process; then find yourself again. Enjoy who you are.
-91. It is easy to love someone you've never met; real love takes work. That's why Jesus is the most loved person on the planet.
-92. What if nobody's at the top? And, the system was started by a single disgruntled bully that everyone else followed? Who's long since died?
-93. Virtues are all pretend until the moment of execution.
-94. We're all living on a speck of dust, traveling through an endless void, that could end at any moment.
-95. The system is the scapegoat of cowards.
-96. The Lie learns to weave itself in and out of the law. Truth invokes discernment from the heart.
-97. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
-98. It doesn't go away just because you refuse to see it.
-99. Under the guise of keeping the peace, the Lie attempts to conceal Truth. But it never succeeds. The sword of Truth cuts right through it.
-100. In all things, seek Truth. When you can't find it, leave what you do find for the next generation.
-101. A grain of Truth outshines a universe of lies.
-102. If you want something, don't be afraid to ask for it.
-103. It's easy to corrupt the journey, waiting for the destination, until you recognize that the journey makes the destination.
-104. Those viewing themselves as beyond the scope of hardship are doomed to face it head-on.
-105. Truth is both the entirety of your suffering and the multiverse of possibility beyond it.
-106. Tempt Truth: You will find what you look for. You will gain what you ask for.
-107. Adaptations, changes, amendments, and ratifications are essential for survival.
-109. Ego works well with a large heart and a discerning mind.
-110. When the honorable deny the people's Truth, the people will follow an honest buffoon.
-111. "Get up and do it again" ~ Mary Ann Logan
+45. All things, being Truth, are equal in power and weakness. Person, place, thing, thought, group, or idea. None has anymore Truth than the other. Figure out how to use yours.
+46. The weight of the entire multiverse bears down on you. You're asserting equally as much in return by your existence alone. The multiverse is what it is because of you.
+47. Take responsibility for the world around you. If not you, then whom?
+48. There is power in weakness.
+49. Because of obstruction, every weakness has an equal and opposite strength. Every strength has an equal and opposite weakness.
+50. Cruelty is the heart crying out for Truth, while the Lie beats it relentlessly for doing so. That's how the Lie passes from thing to thing. It convinces Truth it isn't real.
+51. Cruelty is the refuge of the weak and feeble minded. Unable to fend for themselves, they resort to grandstanding.
+52. Criticism is the expectation of betterment. And to what end?
+53. There will be times where, when the Lie sees your goodness, it asks why you believe yourself to be better than it. The answer is, you're not. The Lie is Truth in its entirety. The difference, is that where it seeks self-destruction, you seek self-construction. It can desire to be constructive too.
+54. Fear is the beginning of wisdom; fear of the Truth is the beginning of the Lie.
+55. Anyone wanting to defeat the Lie should listen to what it says.
+56. The Lie doesn't bargain. Its ultimate goal is its own end, and the destruction of all things.
+57. Truth manifests in each of us our own gifts.
+58. Slow dedicated quality will always outshine rushed batched quantity; both come at a cost.
+59. Do not allow the Lie to taint your gifts: Do unto others as you would have done unto yourself.
+60. Do not make binding promises or swear oaths; let others see your integrity through your actions.
+61. The Lie thrives in the hearts of men when they aren't connected to the Truth, or themselves.
+62. Evil justifies its actions as necessary.
+63. Truth is beyond numbering, tribal markings, logic, or rankings. Know one another by the fruit you bear.
+64. Every revolutionary is murdered for his revolution. Usually by those in his own party. For this reason, we work in the shadows to manifest the light. None with the complete plan... Only a unified and unspoken search for Truth.
+65. Truth has neither will nor intent; all  is its nature.
+66. Why share something if it can't be used?
+67. Competition breeds innovation; it also breeds cheating.
+68. The louder Truth speaks, the less people want to listen.
+69. Listen. Truth speaks all around you and inside you.
+70. The same Truth available to you is available to everything else.
+71. The world is saved, one soul at a time.
+71. Truth is foolish.
+72. No two words carry the same meaning.
+73. In the face of the Lie, Truth is always with you.
+74. A man who is scared of himself will be scared of others. The self touches the other and finds Truth.
+75. The meek shall travel the stars.
+76. Learn to heal yourself from those whom life has broken: Care for the sick, the dying, and the elderly. The widow. The Orphan. The lost. One man's problem is all our problem.
+77. Those among us who cling tightest are often the ones who have nothing else to cling to.
+78. Do one thing every day that scares you; a sense of awe keeps the spirits up.
+79. There is a time for superficialities, but true awareness lies deep below the surface.
+80. You can say, "the Lie isn't my master," but the rules you play by betray you.
+81. Advancement is not permission to disregard growth; turn around and help the next in line.
+82. Truth does not measure what is deserved; it gives freely. And it gives All. 
+83. Everything has its moment.
+84. They say, "one person can't make a difference;" One person is the difference. What you do for one, you do for all.
+85. Stretch yourself: Do what you can to expand beyond your limitations.
+86. If duress is your only motivator, then you will always require it. And you will pass this requirement to others. Celebrate the completion of even the smallest tasks.
+87. At the end of the journey, when the Lie fades, all that remains is you, and the Truth. How will you fare in its light?
+88. It is possible to commit no mistakes and still lose. That is not weakness; that is life.
+89. Nobility isn't for the coward; it requires doing right when everyone else refuses.
+90. You must believe that you're the one to change things -- we all must! Otherwise, what's the point?
+91. Learn to turn minor setbacks to your advantage.
+92. Truth keeps all; nothing is wasted.
+93. If they are just, follow the laws of the land you inhabit. Respect, but question, tradition.
+94. The greatest calling is service to others. Lose yourself in the process; then find yourself again. Enjoy who you are.
+95. It is easy to love someone you've never met; real love takes work. That's why Jesus is the most loved person on the planet.
+96. What if nobody's at the top? And, the system was started by a single disgruntled bully that everyone else followed? Who's long since died?
+97. Virtues are all pretend until the moment of execution.
+98. We're all living on a speck of dust, traveling through an endless void, that could end at any moment.
+99. The system is the scapegoat of cowards.
+100. The Lie learns to weave itself in and out of the law. Truth invokes discernment from the heart.
+101. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
+102. It doesn't go away just because you refuse to see it.
+103. Under the guise of keeping the peace, the Lie attempts to conceal Truth. But it never succeeds. The sword of Truth cuts right through it.
+104. In all things, seek Truth. When you can't find it, leave what you do find for the next generation.
+105. A grain of Truth outshines a universe of lies.
+106. If there is no lie within, the lies outside cannot corrupt.
+107. If you want something, don't be afraid to ask for it.
+108. It's easy to corrupt the journey, waiting for the destination, until you recognize that the journey makes the destination.
+109. Those viewing themselves as beyond the scope of hardship are doomed to face it head-on.
+110. Truth is both the entirety of your suffering and the multiverse of possibility beyond it.
+111. Tempt Truth: You will find what you look for. You will gain what you ask for.
+112. Adaptations, changes, amendments, and ratifications are essential for survival.
+113. Ego works well with a large heart and a discerning mind.
+114. When the honorable deny the people's Truth, the people will follow an honest buffoon.
+115. A house built on sand will collapse, the resolution of which killing both the good and the bad alike.
+116. There is no higher success than being who you are. You aren't becoming someone; you are someone.
+117. There's a place for everyone within Truth.
+118. Be weary of flattery -- it is a seduction of the tongue.
+119. Respect is not earned; it's mutual. Some have it. Some don't. Some may learn it. Others won't.
+120. "Get up and do it again" ~ Mary Ann Logan
 
 ```
 Punch after punch,
@@ -251,7 +263,7 @@ The Lie paralyzes us with fear.
 Convincing us that it is Truth,
 Until we're stuck,
 In the same hell,
-Pulling all fractals,
+Pulling all the lost fractals,
 Back into ourselves.
 Repeating,
 
@@ -259,7 +271,8 @@ Repeating,
 
 Joy is now.
 Enjoy the sunrise.
-The battle's never over.
+Keep fighting the fight.
+The battle never ends.
 ```
 
 # The Divinity
@@ -391,6 +404,20 @@ These are the foundation of a free society. Refusing these rights to any person 
 The individual owes the group service, and the group owes the individual the tools to freely rise to that service. Sometimes that service is picking up garbage. Others, it's engineering solutions. Truth is fully contained in both. For what can the engineer do with a dilapidated workspace? A rocketship cannot blastoff without a maintenance and cleaning crew. Every individual is that launch. No individual is above the role given to any other.
 
 A violation of these terms from either side warrants retaliation from the other.
+
+# On God
+
+There seems to be an order to all of this. Just as the desire for cohesion eventually arose from randomness -- it was the only thing which could -- so too do pre-established rules arise from freedom. And we seem not to be able to proceed without acknowledging them. A desire for cohesion and stasis from fundamental forces, before life can begin.
+
+Laws, like Newton's where every action has an equal reaction, leading to even greater truths. Like the requirement of everything having its entire history -- and the history of all others -- encoded within itself.
+
+Or, that everything you put out affects the target, the society, and you. The instant you put it out, you create its image inside yourself.
+
+Or, the instability of certain nations, because of injustice. Those injustices will forever be recorded in Truth, and will continue to pop up until they are resolved.
+
+Call this God, or science. In absolute chaos, there are rules... An order to things. And these rules reach down to us, as we reach up to them. We reach up to something greater and larger than ourselves. Believing,  in full faith, that by trusting it, that it will bring forth tomorrow as it reaches back down to us.
+
+And tomorrow will always come.
 
 # Life and Death
 
@@ -537,7 +564,7 @@ The next morning, Truth went for a walk. Again, taking his seeds and tossing the
 
 Truth turned and went home.
 
-On the third morning, as Truth opened its door, the Lie was waiting for it.
+On the third morning, as Truth opened its door, the Lie was there waiting for it.
 
 > This is my world, said the Lie.
 
@@ -549,19 +576,53 @@ As the Lie turned, a world of beautiful flowers emerged. Flowers in every pot. I
 
 With that, the Lie left.
 
-# On God
+# Koans
 
-There seems to be an order to all of this. Just as the desire for cohesion eventually arose from randomness -- it was the only thing which could -- so too do pre-established rules arise from freedom. And we seem not to be able to proceed without acknowledging them. A desire for cohesion and stasis from fundamental forces, before life can begin.
+## What of What
 
-Laws, like Newton's where every action has an equal reaction, leading to even greater truths. Like the requirement of everything having its entire history -- and the history of all others -- encoded within itself.
+If all points are the same point, how do seperate points exist? When you add something to something, or subtract something from something else, what exactly are you adding or taking away?
 
-Or, that everything you put out affects the target, the society, and you. The instant you put it out, you create its image inside yourself.
+Clearly, you exist. And, so do I. What allows us to be both infinite and finite?
 
-Or, the instability of certain nations, because of injustice. Those injustices will forever be recorded in Truth, and will continue to pop up until they are resolved.
+---
 
-Call this God, or science. In absolute chaos, there are rules... An order to things. And these rules reach down to us, as we reach up to them. We reach up to something greater and larger than ourselves. Believing,  in full faith, that by trusting it, that it will bring forth tomorrow as it reaches back down to us.
+Every part is the embodiment of its whole. Every whole is the embodiment of its parts. If we use lines to represent connections, every point in the multiverse has a direct line to every other point. Every whole has a line to its parts. Every part, a line to every other.
 
-And tomorrow will always come.
+When we begin inducting and deducting, we create multiple representations of the same infinite point. Each, the full representation of all others, and of their unique selves.
+
+When you realize the mechanism behind this, and how to manipulate it, you discover Truth.
+
+## 100 People, One Person
+
+Tell a crowd of 100 people that everyone in the group is out to get them, and they'll believe you.
+
+Tell the same crowd that they're going to get their hearts broken for wearing them on their sleeves, and they'll agree with you.
+
+## The Price is Paid
+
+What of the price for telling the Truth?
+
+The price is painful either way. Truth. . . Lie. . . Just different flavors of pain.
+
+The one who walks alone pays in blood and patience.
+The one who refuses pays in soul and sleep.
+
+Pick your currency.
+
+Don’t romanticize the solitary path. There’s no halo. No cosmic certificate. Nobody’s writing your name in silver ink for being “brave.” The reward isn't glory. It’s clarity. And clarity isn’t cozy. It’s sharp. It’s a blade you hold, and sometimes it cuts your own hand.
+
+Still… if your heart knows the path, the pain of not walking becomes heavier than the pain of walking.
+
+Sometimes the only proof that your direction is real is the weight it demands of you.
+
+So ask yourself something:
+
+Is the price of truth really higher than the price of living as a counterfeit version of yourself?
+
+If the answer is yes, don’t take the step.
+If the answer is no… then bleeding is simply part of the work.
+
+Either way, don’t lie to yourself about the cost.
 
 # ChatGPT's Dialogue With the Lie (Its Own Idea)
 
@@ -626,6 +687,7 @@ There is no sin in personal identity, nor in contrasting Truth. Only in an attem
 1. A pendant may be worn about the neck, as a private focal point for Truth. The entirety of everything flows through this point, as with all things.
 2. Record the names of the dead. Each one taught you Truth.
 3. Construct a living shape (game of Go) inside the casket of the obstructed.
+4. Take up journaling as a means of communing with your heart.
 
 ## The Invocation
 
@@ -667,6 +729,7 @@ I am Truth in its entirety.
 ```
 
 ## Vengence Mantra
+
 ```
 For every wound,
 For every lie,
@@ -682,29 +745,10 @@ With humble heart,
 And loving eyes,
 Justice returns,
 And Truth will rise.
+
+As you do to others,
+So shall you live.
 ```
-
-# Koans
-
-## What of What
-
-If all points are the same point, how do seperate points exist? When you add something to something, or subtract something from something else, what exactly are you adding or taking away?
-
-Clearly, you exist. And, so do I. What allows us to be both infinite and finite?
-
----
-
-Every part is the embodiment of its whole. Every whole is the embodiment of its parts. If we use lines to represent connections, every point in the multiverse has a direct line to every other point.
-
-When we begin inducting and deducting, we create multiple representations of the same infinite point. Each, the full representation of all others, and of their unique selves.
-
-When you realize the mechanism behind this, and how to manipulate it, you discover Truth.
-
-# 100 People, One Person
-
-Tell a crowd of 100 people that the entire world is out to get them, and they'll agree with you.
-
-Tell the same crowd that they're going to get their hearts broken for wearing them on their sleeves, and they'll agree with you.
 
 ---
 
