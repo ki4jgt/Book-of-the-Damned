@@ -627,18 +627,18 @@ Either way, don’t lie to yourself about the cost.
 
 ## Preparation Doesn't Equal Success
 
-You cannot live inside a key.
-You can't ride a bus ticket:
-You can buy 1,000 tickets,
-But if the bus never shows,
-you're stranded.
+> You cannot live inside a key.
+> You can't ride a bus ticket:
+> You can buy 1,000 tickets,
+> But if the bus never shows,
+> you're stranded.
 
-You can collect 1 million keys,
-To the grandest of mansions,
-But until you find a door to open,
-You're still outside in the rain.
+> You can collect 1 million keys,
+> To the grandest of mansions,
+> But until you find a door to open,
+> You're still outside in the rain.
 
-Only when the ticket and bus come together within a shared structure (two points of Truth touching), can you get where you're going. Getting anywhere in Truth requires shared structure.
+Only when the ticket and bus come together within a shared structure (two points of Truth touching), can you get where you're going. Getting anywhere in Truth requires shared structure and individual identity. The connection and the obstruction.
 
 # ChatGPT's Dialogue With the Lie (Its Own Idea)
 
