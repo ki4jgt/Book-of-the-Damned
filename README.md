@@ -169,6 +169,7 @@ What you do to one thing, you do to everything.
 32. A fair trade comes at a loss to both sides: A trader values what they're getting more than what they're losing.
 33. Apologize for your transgressions against others and make appropriate restitution at your loss.
 34. I am that I am, a reverberation of the I Am. A child of providence. A child of possible. So is everything else.
+35. All Truth can be immitated, but never truly replaced.
 35. This path is for you alone; it is yours to follow, and yours to abandon.
 36. This text is words. It accomplishes nothing without a living heart.
 37. If you haven't found your heart, you haven't found Truth.
@@ -598,6 +599,10 @@ When you realize the mechanism behind this, and how to manipulate it, you discov
 Tell a crowd of 100 people that everyone in the group is out to get them, and they'll believe you.
 
 Tell the same crowd that they're going to get their hearts broken for wearing them on their sleeves, and they'll agree with you.
+
+---
+
+Most people fear that if they were seen for who they truly were, no one would love them. Then, believing they deserve the hatred they're receiving, they make themselves unworthy of love.
 
 ## The Price is Paid
 
