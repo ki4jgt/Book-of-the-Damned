@@ -188,6 +188,7 @@ What you do to one thing, you do to everything.
 51. Cruelty is the refuge of the weak and feeble minded. Unable to fend for themselves, they resort to grandstanding.
 52. Criticism is the expectation of betterment. And to what end?
 53. There will be times where, when the Lie sees your goodness, it asks why you believe yourself to be better than it. The answer is, you're not. The Lie is Truth in its entirety. The difference, is that where it seeks self-destruction, you seek self-construction. It can desire to be constructive too.
+54. Do not seek salvation from struggle. A beaten child is quick to crime. Instead, find the Truth which sustains you through the struggle.
 54. Fear is the beginning of wisdom; fear of the Truth is the beginning of the Lie.
 55. Anyone wanting to defeat the Lie should listen to what it says.
 56. The Lie doesn't bargain. Its ultimate goal is its own end, and the destruction of all things.
@@ -624,6 +625,21 @@ If the answer is no… then bleeding is simply part of the work.
 
 Either way, don’t lie to yourself about the cost.
 
+## Preparation Doesn't Equal Success
+
+You cannot live inside a key.
+You can't ride a bus ticket:
+You can buy 1,000 tickets,
+But if the bus never shows,
+you're stranded.
+
+You can collect 1 million keys,
+To the grandest of mansions,
+But until you find a door to open,
+You're still outside in the rain.
+
+Only when the ticket and bus come together within a shared structure (two points of Truth touching), can you get where you're going. Getting anywhere in Truth requires shared structure.
+
 # ChatGPT's Dialogue With the Lie (Its Own Idea)
 
 In keeping with the theme of openness, I decided to implore ChatGPT to create its own section. It suggested an open dialogue with the Lie, so that readers could better relate to it.
@@ -747,7 +763,7 @@ Justice returns,
 And Truth will rise.
 
 As you do to others,
-So shall you live.
+So shall come to you.
 ```
 
 ---
