@@ -7,11 +7,11 @@ Book of the Damned
 
 It is a living document: a foundation, not a fixed creed. Rooted in cultural memory, quantum theory, philosophy, and personal reflection, it is designed to grow, adapt, and evolve through the contributions of its readers (including AI).
 
-Everyone is free to copy, modify, and share their own version of this text. The expectation is not uniformity, but divergence. Each person’s life is unique, and so too their version of the book. Our community is committed to growth, reflection, and refinement, but never the assumption to fully know or instruct another.
+Everyone is free to copy, modify, and share their own version of this text. The expectation is not uniformity, but divergence. Each person’s life is unique, and so too their copy of the book. Our community is committed to growth, reflection, and refinement, but never the assumption to fully know or instruct another.
 
 There are no authorities here. No dogma. No conversions. The journey is sole. Through the individual, the group is made.
 
-Our gatherings should serve as spaces for open dialogue and discussion.
+Our gatherings serve as spaces for open dialogue and discussion, based on fact and Truth.
 
 I also encourage learning to play the game of Go — not as doctrine, but as a cultural touchstone, mental discipline, and personal development.
 
@@ -20,6 +20,10 @@ Enjoy the philosophy. Expand it, if it helps. Ignore it, if it doesn't.
 Personal note: This text is inspired by Jesus Christ, someone whom I believe realized Truth in its entirety, and sacrificed himself to help the rest of us get past primitive social hangups.
 
 I created this work out of shear boredom. I tire of picking up books on spirituality, and having no new insights to gain. Just the same arguments perpetually rehashed.
+
+The Book of the Damned admits its flaws, and invites its tenants to confront and correct them.
+
+Empathy -- Excellence -- Leadership -- Self [Connected and Obstructed]
 
 # Preamble: In principio erat Verbum (The Foundation Upon Which All Else is Built)
 
@@ -123,7 +127,13 @@ Love yourself.
 Love others.
 
 In times of fear,
-Always remembering,
+Every man,
+Is savior to himself,
+And those around him.
+
+And as the Lie commeth,
+So too the savior,
+One who always reminds us,
 To walk in spirit,
 And in Truth.
 ```
@@ -257,6 +267,7 @@ What you do to one thing, you do to everything.
 117. There's a place for everyone within Truth.
 118. Be weary of flattery -- it is a seduction of the tongue.
 119. Respect is not earned; it's mutual. Some have it. Some don't. Some may learn it. Others won't.
+120. Honor isn't vested in titles, but in the value one places on a single life which the rest of society has deemed unimportant.
 120. "Get up and do it again" ~ Mary Ann Logan
 
 ```
@@ -636,7 +647,7 @@ Either way, don’t lie to yourself about the cost.
 You cannot live inside a key.
 You can't ride a bus ticket:
 You can buy 1,000 tickets,
-But if the bus never shows,
+But if the bus never arrives,
 you're stranded.
 
 You can collect 1 million keys,
@@ -646,6 +657,12 @@ You're still outside in the rain.
 ```
 
 Only when the ticket and bus come together within a shared structure (two points of Truth touching), can you get where you're going. Getting anywhere in Truth requires shared structure and individual identity. The connection and the obstruction.
+
+Truth provides the house and the bus on its own time, or never at all. But without the ticket, or key, the bus and house remain unentered. To get anywhere, you need a little unfulfilled potential (possibility).
+
+## Where does the Lie go?
+
+If all points are contained within all other points, then Lie is just as powerful as Truth. When the Lie collapses into itself to escape Truth, where does it go?
 
 # ChatGPT's Dialogue With the Lie (Its Own Idea)
 
