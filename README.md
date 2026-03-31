@@ -680,7 +680,7 @@ Truth provides the house and the bus on its own time, or never at all. But witho
 
 ## Where does the Lie go?
 
-If all points are contained within all other points, then Lie is just as powerful as Truth. When the Lie collapses into itself to escape Truth, where does it go?
+If all points are contained within all other points, then Lie is just as powerful as Truth. When the Lie collapses into itself to escape Truth, where does it go? It cannot just disappear. Without a single part, the entire system collapses in on itself. Lie reaches out and creates Truth as Truth reaches out and creates Lie.
 
 ## Predestination or Free Will
 
@@ -689,7 +689,7 @@ As force recoils force, is the universe unfolding or unwinding? Or, does it give
 # The Laws of Luck
 
 1. Strive to understand the nature of things.
-2. Prioritize ownership over indebtment.
+2. Prioritize stewardship over indebtment.
 3. Seek quality over quantity.
 4. In trading, both parties should be competent and value what they're receiving more than what they're losing.
 5. Repay your debts with interest.
