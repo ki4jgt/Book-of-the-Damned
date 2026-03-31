@@ -689,9 +689,9 @@ As force recoils force, is the universe unfolding or unwinding? Or, does it give
 
 ---
 
-If free will exists, then all unfolding happens through the mind. It's the only variation in a cosmic game of pool.
+If free will exists, then all unfolding happens through the mind and its identity. It's the only variation in a cosmic game of pool. As all paths are already manifest, our minds need only to remain open to them and reach out to them as they present themselves. Always listening for the song Truth is singing.
 
-If free will doesn't exist, then we're a musicbox, playing a predetermined tune.
+If free will doesn't exist, then we're a musicbox, playing a predetermined tune. We get to blame the entirety of creation for our thoughts, actions, and words.
 
 # The Laws of Luck
 
