@@ -682,6 +682,10 @@ Truth provides the house and the bus on its own time, or never at all. But witho
 
 If all points are contained within all other points, then Lie is just as powerful as Truth. When the Lie collapses into itself to escape Truth, where does it go?
 
+## Predestination or Free Will
+
+As force recoils force, is the universe unfolding or unwinding? Or, does it give potential for both?
+
 # The Laws of Luck
 
 1. Strive to understand the nature of things.
