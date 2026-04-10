@@ -593,7 +593,7 @@ Truth is absent of assertion, and thus present in all things without exception.
 
 What appears as paradox is only the limit of perspective.
 
-For from within time, things divide.
+For from within the assertion of time, things divide and obstruct.
 
 From within Truth, they are one.
 
