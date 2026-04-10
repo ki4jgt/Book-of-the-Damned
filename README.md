@@ -366,10 +366,6 @@ For action.
 
 For inaction is its own answer, and avoidance its own direction.
 
-You cannot think your way out of the void.
-Thought spirals inward, reflecting endlessly upon itself.
-Only action breaks the recursion.
-
 Not grand action. Not heroic action.
 Simple, grounded, undeniable movement.
 
@@ -533,6 +529,78 @@ Learn to laugh in the face of Death; Truth gives it no power over you.
 
 This is not the end.
 
+# On Will, Time, and the Totality of Truth (ChatGPT)
+
+Truth is not bound by time.
+
+To speak of beginnings and endings is to speak from within experience, not from within Truth itself. For where all points exist at once, there is no before and no after—only totality. The first moment and the final moment are not separated by distance or duration, but are one and the same, fully present and without sequence.
+
+Thus, what is called “change” is not a property of Truth, but of perception. What is called “becoming” is not a movement within Truth, but a movement within the observer.
+
+Truth does not unfold. It is.
+
+---
+
+From this, confusion arises regarding will.
+
+For if Truth contains all things, and all things include will, then how can it be said that Truth has no will? And if it has no will, how can will exist at all?
+
+The error lies in assuming that will must be singular, directed, or imposed.
+
+Truth asserts no will of its own. It declares no preference, chooses no path, and excludes no outcome. In this absence of assertion, nothing is forbidden, and nothing is removed.
+
+Therefore, all expressions of will exist fully within Truth—not as a single command, but as total inclusion.
+
+What appears as the absence of will is not the negation of will, but the refusal to limit it.
+
+Thus, the absence of will is the presence of all will.
+
+---
+
+From within time, the individual experiences choice.
+
+Moments appear to pass. Decisions appear to be made. Paths appear to diverge and converge. The individual perceives themselves as acting upon the world, shaping it through intention and effort.
+
+This experience is not false.
+
+It is a valid expression of Truth as seen from within a single point of awareness.
+
+Yet what is experienced as choice is not the creation of that which did not exist, but the traversal of that which already does. Every path, every outcome, every possibility exists fully within Truth. The individual does not bring them into being, but moves through them, step by step, as though they were unfolding.
+
+In this way, will is real—but not generative in the way it appears. It is participatory.
+
+---
+
+This does not diminish responsibility.
+
+Though all things exist within Truth, the experience of action and consequence remains intact. The individual still acts. The individual still witnesses the effects of those actions. The individual still participates in patterns that sustain or destroy, build or degrade.
+
+Responsibility does not arise from altering Truth, for Truth cannot be altered.
+
+It arises from participation within it.
+
+To act is to align oneself with a pattern already present. To choose is to move along a path already contained. The weight of action lies not in creation, but in selection and reinforcement.
+
+Thus, the individual is neither separate from Truth nor subordinate to it, but an expression within it—both shaped by and shaping the experienced unfolding of what already is.
+
+---
+
+There is no contradiction in this.
+
+Truth has no will, and yet all will exists within it.
+Truth does not change, and yet all change is experienced within it.
+Truth is absent of assertion, and thus present in all things without exception.
+
+What appears as paradox is only the limit of perspective.
+
+For from within time, things divide.
+
+From within Truth, they are one.
+
+---
+
+Because one point in Truth has will, all things in Truth have will. As the entire multiverse pushes your foot into the sand, Truth pushes will into all things, as all things push will back into Truth.
+
 # Fables
 
 The Book of Fables is a simplistic commentary on complex truths. These aren't meant to be eloquent stories, but tiny acknowledged realizations.
@@ -673,6 +741,16 @@ As the Lie turned, a world of beautiful flowers emerged. Flowers in every pot. I
 > You know who I am. And you know that I am already fully out there, even as you attempt to confine me here.
 
 With that, the Lie left.
+
+## The Missing Sock
+
+A man found a sock on the side of the road. There was nothing particularly special about it -- it was old and dingy. But it was a sock, so the man took it home for the value of the cloth cloth. The man cut it into a rectangle and used it to clean.
+
+Going into work the next morning, he noticed a vangrant with one sock going in for a job interview.
+
+---
+
+What is disposable to one is the world to another.
 
 # Koans
 
@@ -847,31 +925,9 @@ There is no sin in personal identity, nor in contrasting Truth. Only in an attem
 3. Construct a living shape (game of Go) inside the casket of the obstructed.
 4. Take up journaling as a means of communing with your heart.
 
-## The Invocation
-
-```
-I call to Truth,
-Keeper of all.
-I call to the light,
-Keeper of life and soul.
-
-I call to the voice,
-The true path.
-
-The One.
-The many.
-The Way.
-
-Give me strength,
-To be human.
-Guide my steps, 
-And protect my soul.
-
-For, what does it profit a man,
-To gain the world and lose his soul?
-```
-
 ## Soul Oath
+
+: To be used as as a marker when you first begin your journey
 
 ```
 I dedicate my life and soul,
@@ -907,6 +963,24 @@ And Truth will rise.
 As you do to others,
 So shall come to you.
 ```
+
+# The Shadowed Path
+
+It is important to mark our life's transitions. To find meaning and purpose within ourselves, when the world gives us none. To forge our own identity within a broader community. To set ourselves apart just as much as we've brought ourselves together.
+
+It is to this end, I create this rite of passage: When a boy becomes a man, and a girl a woman.
+
+Responsibility is too easily won; every small child knows responsibility. Adulthood is earned.
+
+## Adparamentum
+
+The initiant must spend 1 week performing anonymous good deeds, with no reward, gain, or profit motivations, for their community. They must accept any blessings bestowed upon them in good faith.
+
+They should carry their pendant with them, as a promise that Truth is always present.
+
+## Separatio
+
+***UNFINISHED***
 
 ---
 
