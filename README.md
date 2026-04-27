@@ -25,7 +25,7 @@ I created this work out of shear boredom. I tire of picking up books on spiritua
 
 The Book of the Damned admits its flaws, and invites its tenants to confront and correct them.
 
-Empathy -- Excellence -- Leadership -- Self [Connected and Obstructed]
+PROVIDENCE .:. PROSPERITY .:. PROTECTION
 
 ---
 
