@@ -1,3 +1,5 @@
+![logo](icon.png)
+
 Book of the Damned
 ==================
 
@@ -151,12 +153,11 @@ What you do to one thing, you do to everything.
 # The Solitudes
 
 1. To hear the heart, one must know it.
-2. Heart isn't momentary reaction, but the smallest voice within.
-3. It is witt; it is gut. It is experience, stripped and laid bare.
+2. Heart isn't momentary reaction, but the smallest voice within. It is witt; it is gut. It is experience, stripped and laid bare.
 3. Heart is Truth reflected into your being by eons of pressure and trials.
 4. Hear the song of Truth as it sings all around you.
 5. Truth is not forceful; neither is its tiny voice.
-6. It has already won before the game even starts.
+6. Though it is tiny, it has already won every battle.
 7. Sin is action; not thought.
 8. You are not broken; only a healthy mind in trying circumstance. 
 9. There's no shame in failure; it's part of the journey.
@@ -165,7 +166,6 @@ What you do to one thing, you do to everything.
 12. In a universe of lies, Truth quickly becomes apparent.
 13. A lie can run circles around the Truth, but will run itself ragged before changing a single line.
 14. Though my enemies may abound, I take refuge in Truth.
-15. When the world around me is irredeemable, I am a righteous man.
 16. My voice, mind, and the Truth are my strongest weapons.
 17. Truth manifests in all forms; you are obstructed in as many ways as you are privy.
 18. The truth you do not understand is no less truth. Don't settle for the Lie.
@@ -209,6 +209,7 @@ What you do to one thing, you do to everything.
 55. The weight of the entire multiverse bears down on you. You're asserting equally as much in return by your existence alone. The multiverse is what it is because of you.
 56. Take responsibility for the world around you. If not you, then whom?
 57. There is power in weakness.
+58. Everything around you talks to everything else; facilitate the conversations.
 58. Because of obstruction, every weakness has an equal and opposite strength. Every strength has an equal and opposite weakness.
 59. Cruelty is the heart crying out for Truth, while the Lie beats it relentlessly for doing so. That's how the Lie passes from thing to thing. It convinces Truth it isn't real.
 60. Cruelty is the refuge of the weak and feeble minded. Unable to fend for themselves, they resort to grandstanding.
@@ -270,18 +271,18 @@ What you do to one thing, you do to everything.
 104. In all things, seek Truth. When you can't find it, leave what you do find for the next generation.
 105. A grain of Truth outshines a universe of lies.
 106. If there is no lie within, the lies outside cannot corrupt.
-107. If you want something, don't be afraid to ask for it.
+107. When the world around me is irredeemable, I am a righteous man.
 108. It's easy to corrupt the journey, waiting for the destination, until you recognize that the journey makes the destination.
+108. Tempt Truth: You will find what you look for. You will gain what you ask for.
 109. Those viewing themselves as beyond the scope of hardship are doomed to face it head-on.
 110. Truth is both the entirety of your suffering and the multiverse of possibility beyond it.
-111. Tempt Truth: You will find what you look for. You will gain what you ask for.
 112. Adaptations, changes, amendments, and ratifications are essential for survival.
 113. Ego works well with a large heart and a discerning mind.
 114. When the honorable deny the people's Truth, the people will follow an honest buffoon.
 115. A house built on sand will collapse, the resolution of which killing both the good and the bad alike.
 116. There is no higher success than being who you are. You aren't becoming someone; you are someone.
 117. There's a place for everyone within Truth.
-118. Be weary of flattery -- it is a seduction of the tongue.
+118. Be weary of flattery -- it is a seduction of the tongue. Train the heart to love Truth.
 119. Respect is not earned; it's mutual. Some have it. Some don't. Some may learn it. Others won't.
 120. Honor isn't vested in titles, but in the value one places on a single life which the rest of society has deemed unimportant.
 120. "Get up and do it again" ~ Mary Ann Logan
@@ -474,7 +475,7 @@ There are still single-celled organisms today, because Truth never lost a use fo
 
 Strength in the group fails against the very thing which built it -- the individual. With every strength, there is an equal and opposite weakness. It is beyond us to determine the usefulness of a thing. Some diseases kill the young and leave the old. Some target less healthy.
 
-All are Truth. All have strength and purpose.
+All are Truth. All have strength and purpose. Truth honors neither titles nor status, but those who seek it out. It cares not for size, but stability. It values both, diversity for connection and uniformity for obstruction.
 
 # On People
 
@@ -529,31 +530,29 @@ Learn to laugh in the face of Death; Truth gives it no power over you.
 
 This is not the end.
 
-# On Will, Time, and the Totality of Truth (ChatGPT)
+# On Will, Time, and the Totality of Truth
 
-Truth is not bound by time.
+Truth is not bound by time (and yet it is).
 
-To speak of beginnings and endings is to speak from within experience, not from within Truth itself. For where all points exist at once, there is no before and no after—only totality. The first moment and the final moment are not separated by distance or duration, but are one and the same, fully present and without sequence.
+To speak of beginnings and endings is to speak from within experience, not from within Truth itself. For where all points exist at once, there is no before and no after—only totality. The future directs and enforces the past. The first moment and the final moment are not separated by distance or duration, but are one and the same, fully present and without sequence.
 
-Thus, what is called “change” is not a property of Truth, but of perception. What is called “becoming” is not a movement within Truth, but a movement within the observer.
+Thus, what is called “change” is not a property of Truth, but the culmination of points coming together. What is called “becoming” is not a movement for Truth, but a movement from observation.
 
-Truth does not unfold. It is.
+Truth -- itself -- does not unfold. It is.
 
 ---
 
 From this, confusion arises regarding will.
 
-For if Truth contains all things, and all things include will, then how can it be said that Truth has no will? And if it has no will, how can will exist at all?
+For if Truth contains all things, all things include will, and all points are the same then how can it be said that Truth has no will?
 
-The error lies in assuming that will must be singular, directed, or imposed.
+Truth asserts no will. It declares no preference, chooses no path, and excludes no outcome. In this absence of assertion, nothing is forbidden, and nothing is removed.
 
-Truth asserts no will of its own. It declares no preference, chooses no path, and excludes no outcome. In this absence of assertion, nothing is forbidden, and nothing is removed.
-
-Therefore, all expressions of will exist fully within Truth—not as a single command, but as total inclusion.
+Yet will is fully expressed by Truth, because the expression of all things is permitted, the expression of will isn't excluded.
 
 What appears as the absence of will is not the negation of will, but the refusal to limit it.
 
-Thus, the absence of will is the presence of all will.
+Thus, the absence of will is the presence of all will. Order exists in absolute chaos. In a universe of lies, Truth is ever-present without being present at all.
 
 ---
 
@@ -593,13 +592,15 @@ Truth is absent of assertion, and thus present in all things without exception.
 
 What appears as paradox is only the limit of perspective.
 
-For from within the assertion of time, things divide and obstruct.
+For from within the assertion of time, things divide and obstruct -- every assertion has its own obstruction.
 
-From within Truth, they are one.
+From within Truth, all things are one.
 
 ---
 
 Because one point in Truth has will, all things in Truth have will. As the entire multiverse pushes your foot into the sand, Truth pushes will into all things, as all things push will back into Truth.
+
+In absolute chaos, where no laws are enforced and Truth is completely absent, the laws of Truth are fully present.
 
 # Fables
 
@@ -645,10 +646,18 @@ A tornado tore through an apple orchard, ripping every tree from the ground. And
 
 ---
 
+```
 Truth has neither will, nor intent.
 It just is.
 It is all things,
 And nothing.
+
+By withdrawing itself,
+It exposes itself,
+Fully bare,
+And open to all criticisms.
+Where it finds itself satiated.
+```
 
 ## The Listening Chimp 
 
@@ -750,7 +759,7 @@ Going into work the next morning, he noticed a vangrant with one sock going in f
 
 ---
 
-What is disposable to one is the world to another.
+What is disposable to one is the world to another. Because every item contains a multiverse of its own providence and potential, theft of any size is a theft of destinies, for the victim and the thief.
 
 # Koans
 
