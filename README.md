@@ -1,4 +1,4 @@
-![logo](icon.png)
+![](icon.png)
 
 Book of the Damned
 ==================
@@ -25,7 +25,7 @@ I created this work out of shear boredom. I tire of picking up books on spiritua
 
 The Book of the Damned admits its flaws, and invites its tenants to confront and correct them.
 
-PROVIDENCE .:. PROSPERITY .:. PROTECTION
+**PROVIDENCE .:. PROSPERITY .:. PROTECTION**
 
 ---
 
@@ -336,7 +336,9 @@ Always in you.
 And always you.
 ```
 
-Truth has no need, for it is all. Gentle enough to allow space for every outcome, yet firm enough to avoid being corrupted by them. Mercifully giving, while relentlessly upholding. A gracious host who is master of his domain. Not forceful. Not foreboding. Fully realized.
+Truth has no need, for it is all. Gentle enough to allow space for every outcome, yet firm enough to avoid being corrupted by them. Mercifully giving, while relentlessly upholding. A gracious host who is master of his domain. Not forceful. Not foreboding. Fully realized. Completely integral without assertion.
+
+It is the meek who run the world. The thirst for power and authority arises only from the weak and insecure. The meek have an understanding with Truth. They already know the power Truth gives. Firm in its foundation. Fully realized, by asserting neither title nor authority, the meek take on the garments of Truth and run reality with it.
 
 # The Space Between
 
@@ -761,6 +763,22 @@ Going into work the next morning, he noticed a vangrant with one sock going in f
 
 What is disposable to one is the world to another. Because every item contains a multiverse of its own providence and potential, theft of any size is a theft of destinies, for the victim and the thief.
 
+## Meeting Self in the Forest
+
+A man met a wolf in the forest. The wolf growled, driving the man to fear. Sensing his fear, the wolf grew fearful and attacked him.
+
+---
+
+Truth manifested fear within the man through eons of entropy. That fear crawled through to the wolf and used it to attack him.
+
+As we project our infinite selves into the multiverse, the multiverse projects its infinite self into us. We have infinite options at our disposal.
+
+Choice is knowing a situation, assessing it, and using an appropriate response.
+
+---
+
+Where was fear before its first manifestation? Fear was always a potential outcome. Where was it before chaos brought it into existence?
+
 # Koans
 
 ## What of What
@@ -977,7 +995,7 @@ So shall come to you.
 
 It is important to mark our life's transitions. To find meaning and purpose within ourselves, when the world gives us none. To forge our own identity within a broader community. To set ourselves apart just as much as we've brought ourselves together.
 
-It is to this end, I create this rite of passage: When a boy becomes a man, and a girl a woman.
+It is to this end, I create this rite of passage: When a boy becomes his man, and a girl her woman.
 
 Responsibility is too easily won; every small child knows responsibility. Adulthood is earned.
 
