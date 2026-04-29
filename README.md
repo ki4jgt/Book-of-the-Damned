@@ -769,7 +769,7 @@ A man met a wolf in the forest. The wolf growled, driving the man to fear. Sensi
 
 ---
 
-Truth manifested fear within the man through eons of entropy. That fear crawled through to the wolf and used it to attack him.
+The man and wolf met at a point and exchanged fear between themselves. That fear crawled through the shared point, to the wolf and used it to attack the man.
 
 As we project our infinite selves into the multiverse, the multiverse projects its infinite self into us. We have infinite options at our disposal.
 
@@ -777,7 +777,7 @@ Choice is knowing a situation, assessing it, and using an appropriate response.
 
 ---
 
-Where was fear before its first manifestation? Fear was always a potential outcome. Where was it before chaos brought it into existence?
+Where was fear before its first manifestation? Fear was always a potential outcome. Where was it before chaotic Truth manifested it within the man?
 
 # Koans
 
