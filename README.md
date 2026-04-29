@@ -33,7 +33,7 @@ Everything above this point is cultural interpretation. Open to amendment, modif
 
 ---
 
-# Preamble: In principio erat Verbum (The Foundation Upon Which All Else is Built)
+# Preamble: In principio erat Verbum (The Central Unchanging Tenet)
 
 ```
 In the beginning is the Word,
@@ -777,7 +777,7 @@ Choice is knowing a situation, assessing it, and using an appropriate response.
 
 ---
 
-Where was fear before its first manifestation? Fear was always a potential outcome. Where was it before chaotic Truth manifested it within the man?
+Where was fear before its first manifestation? Fear was always a potential outcome. Where was it before chaotic Truth manifested it within the man? So too, the Lie. Be not mistaken. Fear, Lie, and Love are infinitely separate as they are infinitely the same. Fear and Love are both natural responses. The Lie uses what it may to achieve its ends -- the destruction of Truth --, but it never succeeds, as Truth is all, even the Lie.
 
 # Koans
 
