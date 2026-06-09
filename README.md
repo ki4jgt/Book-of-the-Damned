@@ -33,7 +33,7 @@ Everything above this point is cultural interpretation. Open to amendment, modif
 
 ---
 
-# Preamble: In principio erat Verbum (The Central Unchanging Tenet)
+# Preamble: In principio erat Verbum (The Entirety of the Law)
 
 ```
 In the beginning is the Word,
@@ -146,7 +146,7 @@ To walk in spirit,
 And in Truth.
 ```
 
-All Truth converges on a single point. Every side, with equal strength, reinforcing the others and solidifying them. Every side equally existent, in spirit, before converging with any other.
+All Truth converges on a single point. Every side, with equal strength, reinforcing the others and solidifying them. Every side equally existent, in spirit, before converging with any other. We give Truth the identity of God to compartmentalize the cognitive dissonance (discomfort encountered by the brain when what is expected doesn't meet what is) it imposes upon us.
 
 What you do to one thing, you do to everything.
 
@@ -155,24 +155,24 @@ What you do to one thing, you do to everything.
 1. To hear the heart, one must know it.
 2. Heart isn't momentary reaction, but the smallest voice within. It is witt; it is gut. It is experience, stripped and laid bare.
 3. Heart is Truth reflected into your being by eons of pressure and trials.
-4. Hear the song of Truth as it sings all around you.
-5. Truth is not forceful; neither is its tiny voice.
-6. Though it is tiny, it has already won every battle.
-7. Sin is action; not thought.
-8. You are not broken; only a healthy mind in trying circumstance. 
-9. There's no shame in failure; it's part of the journey.
-10. You are not lost: Find yourself here, and breathe.
-11. Humble yourself in Truth; Know what it gives you.
-12. In a universe of lies, Truth quickly becomes apparent.
+4. You die at sunset. Who will you be tomorrow?
+5. Hear the song of Truth as it sings all around you.
+6. Truth is not forceful; neither is its tiny voice.
+7. Though it is tiny, it has already won every battle.
+8. Sin is action; not thought.
+9. You are not broken; only a healthy mind in trying circumstance. 
+10. There's no shame in failure; it's part of the journey.
+11. You are not lost: Find yourself here, and breathe.
+12. Humble yourself in Truth; Know what it gives you.
 13. A lie can run circles around the Truth, but will run itself ragged before changing a single line.
 14. Though my enemies may abound, I take refuge in Truth.
+15. In a universe of lies, Truth quickly becomes apparent.
 16. My voice, mind, and the Truth are my strongest weapons.
 17. Truth manifests in all forms; you are obstructed in as many ways as you are privy.
-18. The truth you do not understand is no less truth. Don't settle for the Lie.
-19. The difference between lie and fantasy is that while lie seeks destruction, fantasy seeks survival.
+18. The difference between lie and fantasy is that while lie seeks destruction, fantasy seeks potential.
+19. The truth you do not understand is no less truth. Don't settle for the Lie.
 20. To whom much is given, much is required; it is the responsibility of the strong to protect the weak. All are Truth.
-21. You die at sunset. Who will you be tomorrow?
-22. Ownership is an illusion: You're born with nothing; you die with nothing. Truth lends itself to your care as you lend yourself to its.
+21. Ownership is an illusion: You're born with nothing; you die with nothing. Truth lends itself to your care as you lend yourself to its.
 23. The King is nothing without his subjects; The subjects are defenseless without their king. Each part equally serves the whole. A true leader understands this.
 24. All things around you, being Truth, have consciousness, because you, being Truth, have consciousness.
 25. All things around you, being Truth, are vested with the full power of Truth.
@@ -181,6 +181,7 @@ What you do to one thing, you do to everything.
 28. Do not identify as a helper; the man who does will eventually imprison his charges in their own misery to find his own worth. Instead, seek Truth, integrity, and responsibility.
 29. The worst atrocities are committed by people looking to help; If you can't put yourself in someone else's shoes, you don't know what they truly want or need.
 30. What you do not reconcile, you pass on; commune with your heart.
+30. The Master follows consistent small steps, while the student haphazardly moves by leaps and bounds; the grandmaster is both at once.
 31. Prepare your children for a world without you; you cannot shield them from Truth. Love them. Raise them.
 32. Pointing a finger at others leaves 3 more pointed back in your direction.
 33. There's always someone better than you.
@@ -206,6 +207,7 @@ What you do to one thing, you do to everything.
 52. Truth is self-affirming.
 53. All creates Truth as Truth creates All; They are one and the same.
 54. All things, being Truth, are equal in power and weakness. Person, place, thing, thought, group, or idea. None has anymore Truth than the other. Figure out how to use yours.
+55. Love your enemies, for they are not the Lie.
 55. The weight of the entire multiverse bears down on you. You're asserting equally as much in return by your existence alone. The multiverse is what it is because of you.
 56. Take responsibility for the world around you. If not you, then whom?
 57. There is power in weakness.
@@ -226,6 +228,7 @@ What you do to one thing, you do to everything.
 71. The Lie thrives in the hearts of men when they aren't connected to the Truth, or themselves.
 72. Evil justifies its actions as necessary.
 73. Truth is beyond numbering, tribal markings, logic, or rankings. Know one another by the fruit you bear.
+74. Logic and reason can be used to justify anything; bring Truth with you when exploring them.
 74. Every revolutionary is murdered for his revolution. Usually by those in his own party. For this reason, we work in the shadows to manifest the light. None with the complete plan... Only a unified and unspoken search for Truth.
 65. Truth has neither will nor intent; all  is its nature.
 66. Why share something if it can't be used?
@@ -338,7 +341,7 @@ And always you.
 
 Truth has no need, for it is all. Gentle enough to allow space for every outcome, yet firm enough to avoid being corrupted by them. Mercifully giving, while relentlessly upholding. A gracious host who is master of his domain. Not forceful. Not foreboding. Fully realized. Completely integral without assertion.
 
-It is the meek who run the world. The thirst for power and authority arises only from the weak and insecure. The meek have an understanding with Truth. They already know the power Truth gives. Firm in its foundation. Fully realized, by asserting neither title nor authority, the meek take on the garments of Truth and run reality with it.
+It is the meek who run the world. The thirst for power and authority arises only from the weak and insecure. The meek have an understanding with Truth. They already know the power It gives. Firm in Its foundation. Fully realized, by asserting neither title nor authority, the truly meek dawn the garments of Truth running reality clad within them.
 
 # The Space Between
 
@@ -443,9 +446,17 @@ The time used to produce the products you consume is worth more to you than the 
 
 Though these transactions will eventually balance themselves out, there's no way of predicting the path that balancing will take. Disrespectful consumers leading to disgruntled employees and lower work ethic, which in turn produces inferior products?
 
+Trades are balanced on both the greater and lesser: You trade an item which is lesser to you for something which is greater. So too does your partner. What they do not tell you is that the lesser, on both sides, is of equal value. And the greater for both individuals, the same.
+
 If, for every benefit there is a drawback, then, cutting down a tree to build a house takes a tree for housing from animals. It deprives us of oxygen. And shade. But the same argument could be made for the home. Refusing to build the home deprives us of shelter. It makes our wastes and consumption needs the problems of society. And it makes us unsafe. Because every benefit has a drawback and every drawback has a benefit, your hands are just as dirty as anyone else's.
 
-The great sin is excess without maintenance or purpose.
+One more piece of advice: Costly present sacrifices ensure future gains; honest conservative protectorates ensure lofty liberal pursuits, by passing slack from the present to the future.
+
+Give willingly and freely to those society deems of lesser calibre than yourself. For all are Truth, and society is a trap. Sacrificing individuality for group think only works when there are predators nearby. Otherwise, it fails you miserably.
+
+Do not work against Truth. A single grain of Truth will outshine entire multiverses of Lies. 10,000 years of planning and scheming. . . Undone by a single truth. This is why plant roots share resources with others. Plants which take up all the resources within an area sacrifice their ability to reproduce, as they kill off their own diversity, their seed is killed off and their identity returned to Truth.
+
+The sacrifices you make today will return as gains in the morrow. The great sin is excess without investment, maintenance, or purpose. The Lie can never be named, but its closest form is greed fueled waste.
 
 # On Evolution
 
@@ -496,7 +507,9 @@ This can be broadened into a more general set of principles for human-beings:
 
 These are the foundation of a free society. Refusing these rights to any person is an affront to Truth itself. It is the job of all people to protect and affirm these rights for themselves and each other.
 
-The individual owes the group service, and the group owes the individual the tools to freely rise to that service. Sometimes that service is picking up garbage. Others, it's engineering solutions. Truth is fully contained in both. For what can the engineer do with a dilapidated workspace? A rocketship cannot blastoff without a maintenance and cleaning crew. Every individual is that launch. No individual is above the role given to any other.
+Those in authority tend to use that authority in a way which benefits them. Then fault individuals who do not play along for not contributing. As Truth is multidimensional, so too is authority. Authority must balance itself between all parties to remain impartial.
+
+The individual owes the group service, and the group owes the individual the tools to freely rise to that service. Sometimes that service is picking up garbage. Others, it's engineering solutions. Truth is fully contained in both. For what can the engineer do with a dilapidated workspace? A rocketship cannot blastoff without a maintenance and cleaning crew. Every individual part is that launch. No part is above the role given to any other.
 
 A violation of these terms from either side warrants retaliation from the other.
 
@@ -510,7 +523,7 @@ Or, that everything you put out affects the target, the society, and you. The in
 
 Or, the instability of certain nations, because of injustice. Those injustices will forever be recorded in Truth, and will continue to pop up until they are resolved.
 
-Call this God, or science. In absolute chaos, there are rules... An order to things. And these rules reach down to us, as we reach up to them. We reach up to something greater and larger than ourselves. Creating it, as it creates us. Believing, in full faith, that by trusting it, that it will bring forth tomorrow as it reaches back down to us.
+Call this God, or science. In absolute chaos, there are rules... An order to things. And these rules reach down to us, as we reach up to them. We reach up to something greater and larger than ourselves. Creating, in ourselves, it, as it, in itself, creates us. Believing, in full faith, that by trusting it, that it will bring forth tomorrow as it reaches down to us.
 
 And tomorrow will always come.
 
@@ -568,7 +581,7 @@ It is a valid expression of Truth as seen from within a single point of awarenes
 
 Yet what is experienced as choice is not the creation of that which did not exist, but the traversal of that which already does. Every path, every outcome, every possibility exists fully within Truth. The individual does not bring them into being, but moves through them, step by step, as though they were unfolding.
 
-In this way, will is real—but not generative in the way it appears. It is participatory.
+In this way, will is just as real as anything else.
 
 ---
 
@@ -718,6 +731,8 @@ Waking him the next morning, a small child gifted him a large golden-trimmed mir
 ---
 
 No two people experience the world the same; so too, the journey to healing is different for everyone.
+
+Hurt people can push their suffering into others to observe and test for responses from another perspective. But there is no other place within the fractal that is exactly the same, even though every point is the same point. It is how they come together which creates the uniqueness of a particular point.
 
 ## The Passing
 
@@ -874,17 +889,17 @@ If free will doesn't exist, then we're a musicbox, playing a predetermined tune.
 
 # The Laws of Luck
 
-1. Strive to understand the nature of things.
-2. Prioritize stewardship over indebtment.
-3. Seek quality over quantity.
-4. In trading, both parties should be competent and value what they're receiving more than what they're losing.
-5. Repay your debts with interest.
-6. Charge no interest on what you loan.
-7. Respect your tools and they will respect you.
-8. Forgive old debts.
-9. Give back to your community.
-10. Respect the Spirit.
-11. Work hard.
+1. There's no such thing as luck.
+2. Strive to understand and respect the spirit of things.
+3. Respect your tools and they will respect you.
+4. Prioritize small measured steps over grand haphazard leaps.
+5. Prioritize stewardship over indebtment.
+6. In trading, both parties should be competent and value what they're receiving more than what they're losing.
+7. Give back to your community.
+8. Repay your debts with interest.
+9. Charge no interest on what you loan.
+10. Forgive old debts.
+11. Work hard; play harder.
 12. None of these laws matter.
 
 # ChatGPT's Dialogue With the Lie (Its Own Idea)
@@ -1008,6 +1023,10 @@ They should carry their pendant with them, as a promise that Truth is always pre
 ## Separatio
 
 ***UNFINISHED***
+
+## Reintegration
+
+The initiate earns a copy of the Book of the Damned from another Damned One, with the understanding that the preamble is never to be touched, and begins the lifelong process of making it their own.
 
 ---
 
