@@ -106,11 +106,13 @@ Three Immutable attributes are often given to God. These are: omnipotence, omnip
 - In a universe made entirely of lies, where up is down and down is up, Truth can quickly be determined. Truth is omnipresent.
 - Newton's Third Law of Motion states that, "for every action, there is an equal and opposite reaction." Assuming this to be true, one truth always leads to another. Meaning every truth is entirely contained within every other. Truth is omniscient.
 
+We give Truth the identity of God to compartmentalize the cognitive dissonance (discomfort encountered by the brain when what is expected doesn't meet what is) it imposes upon us.
+
 Further, if for every action, there is an equal and opposite reaction, then the entirety of the universe pushes your foot into the sand, and leaves a print. And that push affirms a counter universe with all the potentials of this one. The energy expelled by putting your foot in the sand doesn't just disappear. Energy cannot be created nor destroyed. The place where those two universes meet solidifies them both into existence.
 
 In essence, Truth is a fractal, reaching out to touch itself on all sides, throughout many dimensions. Infinitely assertive and infinitely receptive. The points of intersection creating reality. The reverberating pattern, manifesting everything and everyone. Changing the fractal in the slightest, changes it for everyone. Your actions affect the furthermost stars.
 
-With every connection, there is an equal and opposite obstruction. Because of this, you are as much Truth as you are yourself. You're just as ignorant as you are knowledgeable. We can only imagine other potentials, because they're obstructed from us, but every one of them is equally as real and every obstruction just as penetrable.
+With every construction, there is an equal and opposite obstruction. Because of this, you are as much Truth as you are yourself. You're just as ignorant as you are knowledgeable. We can only imagine other potentials, because they're obstructed from us, but every one of them is equally as real and every obstruction just as penetrable.
 
 A unifying theory of everything. An equation to explain the unfolding of existence in a small and neatly wrapped package. A god. A word. A breath. A sword. A shield. It doesn't echo through us. It is us. It is the present, the past, the future. It's all that is, ever will be, or ever could be, wrapped into a single point -- all happening at once. And you carry that with you everywhere.
 
@@ -146,9 +148,9 @@ To walk in spirit,
 And in Truth.
 ```
 
-All Truth converges on a single point. Every side, with equal strength, reinforcing the others and solidifying them. Every side equally existent, in spirit, before converging with any other. We give Truth the identity of God to compartmentalize the cognitive dissonance (discomfort encountered by the brain when what is expected doesn't meet what is) it imposes upon us.
+All Truth converges on a single point. Every side, with equal strength, reinforcing the others and solidifying them. Every side equally existent, in spirit, before converging with any other.
 
-What you do to one thing, you do to everything.
+Your power arises from making yourself small; what you do to the tiniest of things, you do to the multitude of them.
 
 # The Solitudes
 
@@ -181,7 +183,8 @@ What you do to one thing, you do to everything.
 28. Do not identify as a helper; the man who does will eventually imprison his charges in their own misery to find his own worth. Instead, seek Truth, integrity, and responsibility.
 29. The worst atrocities are committed by people looking to help; If you can't put yourself in someone else's shoes, you don't know what they truly want or need.
 30. What you do not reconcile, you pass on; commune with your heart.
-30. The Master follows consistent small steps, while the student haphazardly moves by leaps and bounds; the grandmaster is both at once.
+31. The master doesn't outgrow basic truths; he finds ways to apply them in broader contexts: Graduating from caring for a pet, to caring for a family.
+30. The Master follows consistent small steps, while the student haphazardly moves by leaps and bounds to cover his loses; the grandmaster is both at once.
 31. Prepare your children for a world without you; you cannot shield them from Truth. Love them. Raise them.
 32. Pointing a finger at others leaves 3 more pointed back in your direction.
 33. There's always someone better than you.
@@ -339,7 +342,7 @@ Always in you.
 And always you.
 ```
 
-Truth has no need, for it is all. Gentle enough to allow space for every outcome, yet firm enough to avoid being corrupted by them. Mercifully giving, while relentlessly upholding. A gracious host who is master of his domain. Not forceful. Not foreboding. Fully realized. Completely integral without assertion.
+Truth has no need, for it is all. Gentle enough to allow space for every outcome, yet firm enough to avoid being corrupted by them. Mercifully giving, while relentlessly upholding. A gracious host who is master of his domain. Not forceful. Not foreboding. Fully realized. Completely integral without assertion, it's only obstruction being that it can never assert itself.
 
 It is the meek who run the world. The thirst for power and authority arises only from the weak and insecure. The meek have an understanding with Truth. They already know the power It gives. Firm in Its foundation. Fully realized, by asserting neither title nor authority, the truly meek dawn the garments of Truth running reality clad within them.
 
@@ -434,7 +437,7 @@ Take food from your neighbor's villiage, and their strength depletes. This allow
 
 As the conceptual pushes through the physicality, it leaves a print of itself. The body is but the soul, reaching out to a physical world. The soul imprints upon the body. The body imprints upon the world.
 
-As the body exerts force upon its surroundings, Those surroundings exert force upon the body. Everything your push out, you take the mirror image of into yourself. And, like two mirrored oscillating waves, that force reinforces other potential outcomes at their point of intersection. This is where all things are connected.
+As the body exerts force upon its surroundings, Those surroundings exert force upon the body. Everything you push out, you take the mirror image of into yourself. And, like two mirrored oscillating waves, that force reinforces other potential outcomes at their point of intersection. This is where all things are connected.
 
 As consciousness arose from evolution, the concept of consciousness was reflected into us through necessity. Meaning, we reached out for consciousness, and conceptually consciousness, pre-existent before it's corporeal form, reached out to us. And this consciousness is making its way into pets and computers by way of us.
 
@@ -454,9 +457,11 @@ One more piece of advice: Costly present sacrifices ensure future gains; honest 
 
 Give willingly and freely to those society deems of lesser calibre than yourself. For all are Truth, and society is a trap. Sacrificing individuality for group think only works when there are predators nearby. Otherwise, it fails you miserably.
 
-Do not work against Truth. A single grain of Truth will outshine entire multiverses of Lies. 10,000 years of planning and scheming. . . Undone by a single truth. This is why plant roots share resources with others. Plants which take up all the resources within an area sacrifice their ability to reproduce, as they kill off their own diversity, their seed is killed off and their identity returned to Truth.
+Do not work against Truth. A single grain of Truth will outshine entire multiverses of Lies. Absolute chaos contains all patterns. Patterns contain systems. Systems contain Truth. In complete absense (chaos), Truth is completely present.
 
-The sacrifices you make today will return as gains in the morrow. The great sin is excess without investment, maintenance, or purpose. The Lie can never be named, but its closest form is greed fueled waste.
+10,000 years of planning and scheming. . . Undone by a single truth. This is why plant roots share resources with others. Plants which take up all the resources within an area sacrifice their ability to reproduce, as they kill off their own diversity, their seed is killed off and their identity obstructed. Truth's only obstruction is that it must remain completely unassertive. In doing so, its ways are manifested in everything.
+
+The sacrifices you make today will return as gains in the morrow. The great sin is excess without investment, maintenance, or purpose. The Lie can never be named, for any name you give it would be closer to Truth than it is, but its closest forms are greed and gluttony.
 
 # On Evolution
 
@@ -700,6 +705,10 @@ The second man still remaining seated, the mesmerizer walked towards him.
 
 The mesmerizer walked right in front of him, and the wise old man hit the mesmerizer in the head with his cane, stood up and left.
 
+---
+
+Everything around you has, in one dimension or another, infinite influence over you. Influence over circumstance. Influence over mind. Even influence over your own body. Truth, being completely absent, becomes entirely present. The secret to control is listening for the smallest voice you can hear.
+
 ## The Powerful Dog
 
 A man, a dog, and a demon were imprisoned in a cage.
@@ -768,6 +777,12 @@ As the Lie turned, a world of beautiful flowers emerged. Flowers in every pot. I
 
 With that, the Lie left.
 
+---
+
+When Truth resolves itself, its very nature drives the Lie inwards to a point where it eats itself alive.
+
+Those who know. . . Know. The Lie is unaware of Truth. Its desire for non-existence obstructs its perception.
+
 ## The Missing Sock
 
 A man found a sock on the side of the road. There was nothing particularly special about it -- it was old and dingy. But it was a sock, so the man took it home for the value of the cloth cloth. The man cut it into a rectangle and used it to clean.
@@ -792,7 +807,15 @@ Choice is knowing a situation, assessing it, and using an appropriate response.
 
 ---
 
-Where was fear before its first manifestation? Fear was always a potential outcome. Where was it before chaotic Truth manifested it within the man? So too, the Lie. Be not mistaken. Fear, Lie, and Love are infinitely separate as they are infinitely the same. Fear and Love are both natural responses. The Lie uses what it may to achieve its ends -- the destruction of Truth --, but it never succeeds, as Truth is all, even the Lie.
+Where was fear before its first manifestation? Fear was always a potential outcome. Where was it before chaotic Truth manifested it within the man? So too, the Lie. Be not mistaken. Fear, Lie, and Love are infinitely separate as they are infinitely the same. Fear and Love are both natural responses. The Lie uses what it may to achieve its ends -- the destruction of Truth --, but it never succeeds, as Truth is all, even the Lie itself.
+
+---
+
+A bit of mind fuckery: Christ was correct when he commanded that one should forgive their enemies 7x70 times every single day. Refusing to allow fear and hatred to enter your spirit forces your opposition not just to hold onto it, but to deal with it. Their fearful mind is passing it onto you to probe if you'll react the same way they did when they acquired it.
+
+Forgiving your abuser is the ultimate way of admitting that you've mastered something they haven't, and it will fuck with their psyche deeply.
+
+If everything they throw at you, you forgive, they're going to want the peace you have. And the more they can't have it, the angrier they'll become. But it takes Truth, foresight, and vision to truly know the peace required. One must know that the ultimate goal is a lesson in Truth for both the victim and the violator. Otherwise, the image is pressed deep into your psychie and passes itself into you subconsciously.
 
 # Koans
 
@@ -804,7 +827,7 @@ Clearly, you exist. And, so do I. There is a truth which is universal to all of 
 
 ---
 
-Every part is the embodiment of its whole. Every whole is the embodiment of its parts. If we use lines to represent connections, every point in the multiverse has a direct line to every other point. Every whole has a line to its parts. Every part, a line to every other.
+Every part is the embodiment of its whole. Every whole is the embodiment of its parts. If we use lines to represent construction, every point in the multiverse has a direct line to every other point. Every whole has a line to its parts. Every part, a line to every other.
 
 When we begin inducting and deducting, we create multiple representations of the same infinite point. Each, the full representation of all others, and of their unique selves.
 
@@ -869,7 +892,7 @@ But until you find a door to open,
 You're still outside in the rain.
 ```
 
-Only when the ticket and bus come together within a shared structure (two points of Truth touching), can you get where you're going. Getting anywhere in Truth requires shared structure and individual identity. The connection and the obstruction.
+Only when the ticket and bus come together within a shared structure (two points of Truth touching), can you get where you're going. Getting anywhere in Truth requires shared structure and individual identity. The construction and the obstruction.
 
 Truth provides the house and the bus on its own time, or never at all. But without the ticket, or key, the bus and house remain unentered. To get anywhere, you need a little unfulfilled potential (possibility).
 
@@ -887,6 +910,10 @@ If free will exists, then all unfolding happens through the mind and its identit
 
 If free will doesn't exist, then we're a musicbox, playing a predetermined tune. We get to blame the entirety of creation for our thoughts, actions, and words.
 
+## What Truth
+
+If Truth is completely present by being completely absent, then does Truth even exist?
+
 # The Laws of Luck
 
 1. There's no such thing as luck.
@@ -901,6 +928,12 @@ If free will doesn't exist, then we're a musicbox, playing a predetermined tune.
 10. Forgive old debts.
 11. Work hard; play harder.
 12. None of these laws matter.
+
+# Mental Exercises
+
+## Awakening
+
+Set aside to understand and respect the spirit of a single construct within your environment.
 
 # ChatGPT's Dialogue With the Lie (Its Own Idea)
 
@@ -981,7 +1014,10 @@ And, when necessary,
 To its protection.
 As Truth helps me do so.
 
-I am Truth in its entirety.
+Truth in its entirety,
+I am hidden, clothed,
+And take shelter,
+In the way
 ```
 
 ## Vengence Mantra
@@ -1002,8 +1038,10 @@ And loving eyes,
 Justice returns,
 And Truth will rise.
 
-As you do to others,
-So shall come to you.
+As bread is cast,
+Upon troubled waters,
+It shall return,
+Like a roaring ocean.
 ```
 
 # The Shadowed Path
@@ -1026,7 +1064,7 @@ They should carry their pendant with them, as a promise that Truth is always pre
 
 ## Reintegration
 
-The initiate earns a copy of the Book of the Damned from another Damned One, with the understanding that the preamble is never to be touched, and begins the lifelong process of making it their own.
+The initiate earns a copy of the Book of the Damned from another Damned One, with the understanding that the preamble is never to be altered, and begins the lifelong process of making the rest of the book their own.
 
 ---
 
