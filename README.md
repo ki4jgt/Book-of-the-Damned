@@ -19,7 +19,7 @@ I also encourage learning to play the game of Go — not as doctrine, but as a c
 
 Enjoy the philosophy. Expand it, if it helps. Ignore it, if it doesn't.
 
-Personal note: This text is inspired by Jesus Christ, someone whom I believe realized Truth in its entirety, and sacrificed himself to help the rest of us get past primitive social hangups.
+Personal note: This text is inspired by Jesus Christ, someone whom I believe realized Truth in its entirety, took it completely into himself, and sacrificed himself to help the rest of us get past social hangups.
 
 I created this work out of shear boredom. I tire of picking up books on spirituality, and having no new insights to gain. Just the same arguments perpetually rehashed.
 
@@ -241,6 +241,7 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 68. The louder Truth speaks, the less people want to listen.
 69. Listen. Truth speaks all around you and inside you.
 70. The same Truth available to you is available to everything else.
+71. Weave Truth with fear and respect; for those who dishonor it shall be dishonored in return.
 71. The world is saved, one soul at a time.
 71. Truth is foolish.
 72. No two words carry the same meaning.
@@ -481,7 +482,11 @@ But there is such a thing as being different. Animals who are different make the
 
 Humans cannot ignore the laws of Truth. They will keep popping up. And Truth gave you gifts to preserve and cultivate, gifts which make you different and unique.
 
-For each challenge, there evolves a demand for a solution. And as much as Truth demands homogeny, so too does Truth demand specialization.
+For each challenge, there evolves a demand for a solution. And as much as Truth demands homogeny, so too does Truth demand individual obstruction, identity, and specialization.
+
+Group identity conceals and protects, so individual identity can survive. All for one, and one for all.
+
+This is not a group text, however. It is for the sharpening of the single individual. Groups create camoflauge, but crowd think tends toward stupidity. Truth contained here is free to every man, but should be left solely up to him to interpret.
 
 Truth spits out all the random potentials it can. Then challenges their existence with other random potentials.
 
@@ -489,7 +494,7 @@ Parts of Truth which fail the challenge are obstructed, but removal of variation
 
 In the beginning of us, the essentials for life came about many times. It wasn't until Truth added a desire to feed and remain alive that life became more complex. The challenge, in this case, was the desire to stay cohesive -- something with which every lifeform is endowed. When the essential congealed as providence, potential pulled from itself a pre-existent desire for conhesion.
 
-And, as cells warred against one another, complex Truth systems -- already in existence -- began to rear themselves. Teams and partnerships emerged as multicellular organisms could consume more of their competition -- it is from these wars that we gain our emotions. Primitive logical structures which bridge the conceptual and the physical. The necessity with the meaning.
+And, as cells warred against one another, complex Truth systems -- already in existence -- began to rear themselves. Teams and partnerships emerged as multicellular organisms could consume more of their competition -- it is from these wars that we gain our emotions. Primitive logical structures which bridge the conceptual and the physical. The necessity with the meaning. These primitive systems should be built atop, not castrated.
 
 But the challenge is unknowable, so too is the solution. Truth produces variance because every variation is a solution to some unknowable challenge.
 
@@ -512,7 +517,7 @@ This can be broadened into a more general set of principles for human-beings:
 2. The right to express oneself and be informed
 3. The right to self-determination and responsibility
 4. The right to privacy and free affiliation 
-5. The right to liberty and justice
+5. The right to liberty and justice (recompense)
 
 These are the foundation of a free society. Refusing these rights to any person is an affront to Truth itself. It is the job of all people to protect and affirm these rights for themselves and each other.
 
@@ -562,7 +567,7 @@ To speak of beginnings and endings is to speak from within experience, not from 
 
 Thus, what is called “change” is not a property of Truth, but the culmination of points coming together. What is called “becoming” is not a movement for Truth, but a movement from observation.
 
-Truth -- itself -- does not unfold. It is.
+Truth -- itself -- is.
 
 ---
 
@@ -731,6 +736,8 @@ The dog placed his neck between the cage bars and broke it, leaving only the man
 
 People meet themselves in you as much as they meet you in themselves.
 
+You cannot stop someone who truly wishes to leave. Forcing them out is ultimately blood on your own hands.
+
 ## The Mirror
 
 A Damned One was walking down the street when he encountered a man with a gold-trimmed mirror. Gazing into it, the Damned became irrate. Screaming and cursing the passerby.
@@ -818,14 +825,6 @@ Choice is knowing a situation, assessing it, and using an appropriate response.
 ---
 
 Where was fear before its first manifestation? Fear was always a potential outcome. Where was it before chaotic Truth manifested it within the man? So too, the Lie. Be not mistaken. Fear, Lie, and Love are infinitely separate as they are infinitely the same. Fear and Love are both natural responses. The Lie uses what it may to achieve its ends -- the destruction of Truth --, but it never succeeds, as Truth is all, even the Lie itself.
-
----
-
-A bit of mind fuckery: Christ was correct when he commanded that one should forgive their enemies 7x70 times every single day. Refusing to allow fear and hatred to enter your spirit forces your opposition not just to hold onto it, but to deal with it. Their fearful mind is passing it onto you to probe if you'll react the same way they did when they acquired it.
-
-Forgiving your abuser is the ultimate way of admitting that you've mastered something they haven't, and it will fuck with their psyche deeply.
-
-If everything they throw at you, you forgive, they're going to want the peace you have. And the more they can't have it, the angrier they'll become. But it takes Truth, foresight, and vision to truly know the peace required. One must know that the ultimate goal is a lesson in Truth for both the victim and the violator. Otherwise, the image is pressed deep into your psychie and passes itself into you subconsciously.
 
 # Koans
 
@@ -947,7 +946,21 @@ Set aside time to understand and respect the spirit of a single construct within
 
 ## Foreknowledge
 
-There are those who will try to control you through predictability. They speak of future actions which you will carry out, as if they know you personally. Their predictions are always nothing more obvious than, "you will drink water." We all will eventually drink water. And, if you'll allow yourself to step beyond your racing thoughts, you'll realize their control is making you believe they have it.
+There are those who will try to control you through predictability and foreknowledge. They speak of future actions which you will carry out or identities you will assume, as if they know you personally.
+
+Their predictions are always nothing more obvious than, "you will drink water." We all will drink water. And, if you'll allow yourself to step beyond your racing thoughts, you'll realize their only control is making you believe they have it. Your power -- your identity -- lies in Truth. Hear the small voice and let it lead.
+
+## A Bit of Mind Fuckery
+
+Christ was correct when he asserted that one should forgive their enemies 7x70 times every single day. Refusing to allow fear and hatred to enter your spirit forces your opposition not just to hold onto it, but to deal with it. Their fearful mind is passing it onto you to probe your reaction to it, and assess whether you'll react in the same way they did.
+
+Forgiving your abuser is the ultimate way of admitting that you've mastered something they haven't, and it will fuck with their psyche deeply.
+
+If everything they throw at you, you forgive, they're going to want the peace you have. And the more they can't have it, the angrier they'll become. They cannot understand the Truth you carry. It confounds them. Every attack answered with peace. Renders all the lessons the attacker has learned meaningless.
+
+But it takes Truth, foresight, and vision to truly know the peace required. One must know that the ultimate goal is a lesson in Truth for both the victim and the violator. Otherwise, the desire to surpass cruelty presses itself deep into your psychie and passes the painful image into you. Making the victim the abuser.
+
+Confront the image with Truth from the heart. Listen to the pain. Listen to the anger. Feel the suffering. Allow Truth to mediate between them and yourself. Acknowledge that you were treated wrongly. And, when you're ready, forgive.
 
 # ChatGPT's Dialogue With the Lie (Its Own Idea)
 
