@@ -91,12 +91,14 @@ Everything beyond this point is cultural interpretation. Open to amendment, modi
 
 # Obligations
 
-The Damned are a solitary order with 4 primary obligations:
+The Damned are a monistic solitary order with 4 primary obligations:
 
 1. Ten percent of everything which comes to them (money, material, and time) must be donated back to their communities.
 2. Public discussion is to be encouraged and embraced.
 3. They are to preserve localized Truth.
 4. They are to speak to their hearts daily.
+
+We differ from monists in that the primitive material of the multiverse (Truth) contains all possible manifestations within itself entirely. And that that primitive is entirely us and not us at all. That, without us, the primitive wouldn't exist. And, without the primitive, we wouldn't exist. We create it as it creates us. The past creates the future as the future creates the past.
 
 # The Immutable Truth
 
@@ -407,6 +409,8 @@ It is action taken in its absence.
 
 And in time, what once felt like nothing…
 will reveal itself as the ground upon which you chose to stand.
+
+Truth speaks to those who're brave enough to find it.
 ```
 
 # Reality
@@ -457,7 +461,7 @@ One more piece of advice: Costly present sacrifices ensure future gains; honest 
 
 Give willingly and freely to those society deems of lesser calibre than yourself. For all are Truth, and society is a trap. Sacrificing individuality for group think only works when there are predators nearby. Otherwise, it fails you miserably.
 
-Do not work against Truth. A single grain of Truth will outshine entire multiverses of Lies. Absolute chaos contains all patterns. Patterns contain systems. Systems contain Truth. In complete absense (chaos), Truth is completely present.
+Do not work against Truth. A single grain of Truth will outshine entire multiverses of Lies. Absolute chaos contains all patterns. Patterns contain systems. Systems contain Truth. In complete absense (chaos), Truth is made completely present by the very systems it isolates itself from.
 
 10,000 years of planning and scheming. . . Undone by a single truth. This is why plant roots share resources with others. Plants which take up all the resources within an area sacrifice their ability to reproduce, as they kill off their own diversity, their seed is killed off and their identity obstructed. Truth's only obstruction is that it must remain completely unassertive. In doing so, its ways are manifested in everything.
 
@@ -483,9 +487,9 @@ Truth spits out all the random potentials it can. Then challenges their existenc
 
 Parts of Truth which fail the challenge are obstructed, but removal of variation dooms the entire species with a single unknowable challenge.
 
-In the beginning of us, the essentials for life came about many times. It wasn't until Truth added a desire to feed and remain alive that life became more complex. The challenge, in this case, was the desire to stay cohesive -- something with which every lifeform is endowed.
+In the beginning of us, the essentials for life came about many times. It wasn't until Truth added a desire to feed and remain alive that life became more complex. The challenge, in this case, was the desire to stay cohesive -- something with which every lifeform is endowed. When the essential congealed as providence, potential pulled from itself a pre-existent desire for conhesion.
 
-As cells warred against one another, complex Truth systems -- already in existence -- began to rear themselves. Teams and partnerships emerged as multicellular organisms could consume more of their competition -- it is from these wars that we gain our emotions. Primitive logical structures which bridge the conceptual and the physical. The necessity with the meaning.
+And, as cells warred against one another, complex Truth systems -- already in existence -- began to rear themselves. Teams and partnerships emerged as multicellular organisms could consume more of their competition -- it is from these wars that we gain our emotions. Primitive logical structures which bridge the conceptual and the physical. The necessity with the meaning.
 
 But the challenge is unknowable, so too is the solution. Truth produces variance because every variation is a solution to some unknowable challenge.
 
@@ -677,6 +681,12 @@ It exposes itself,
 Fully bare,
 And open to all criticisms.
 Where it finds itself satiated.
+
+Though my body may rot,
+And all manner of creature, 
+Feast upon my remains, 
+The Lie cannot,
+A single line of my story change.
 ```
 
 ## The Listening Chimp 
@@ -785,7 +795,7 @@ Those who know. . . Know. The Lie is unaware of Truth. Its desire for non-existe
 
 ## The Missing Sock
 
-A man found a sock on the side of the road. There was nothing particularly special about it -- it was old and dingy. But it was a sock, so the man took it home for the value of the cloth cloth. The man cut it into a rectangle and used it to clean.
+A man found a sock on the side of the road. There was nothing particularly special about it -- it was old and dingy. But it was a sock, so the man took it home for the value of the cloth. The man cut it into a rectangle and used it to clean.
 
 Going into work the next morning, he noticed a vangrant with one sock going in for a job interview.
 
@@ -927,13 +937,17 @@ If Truth is completely present by being completely absent, then does Truth even 
 9. Charge no interest on what you loan.
 10. Forgive old debts.
 11. Work hard; play harder.
-12. None of these laws matter.
+12. None of these laws matter; Truth promises nothing.
 
 # Mental Exercises
 
 ## Awakening
 
-Set aside to understand and respect the spirit of a single construct within your environment.
+Set aside time to understand and respect the spirit of a single construct within your environment.
+
+## Foreknowledge
+
+There are those who will try to control you through predictability. They speak of future actions which you will carry out, as if they know you personally. Their predictions are always nothing more obvious than, "you will drink water." We all will eventually drink water. And, if you'll allow yourself to step beyond your racing thoughts, you'll realize their control is making you believe they have it.
 
 # ChatGPT's Dialogue With the Lie (Its Own Idea)
 
