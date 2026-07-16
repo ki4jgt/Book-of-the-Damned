@@ -176,7 +176,7 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 18. The difference between lie and fantasy is that while lie seeks destruction, fantasy seeks potential.
 19. The truth you do not understand is no less truth. Don't settle for the Lie.
 20. To whom much is given, much is required; it is the responsibility of the strong to protect the weak. All are Truth.
-21. Ownership is an illusion: You're born with nothing; you die with nothing. Truth lends itself to your care as you lend yourself to its.
+21. Ownership is an illusion: You're born with nothing; you die with nothing. Truth lends itself to your care as you lend yourself to its. And it's all you have.
 23. The King is nothing without his subjects; The subjects are defenseless without their king. Each part equally serves the whole. A true leader understands this.
 24. All things around you, being Truth, have consciousness, because you, being Truth, have consciousness.
 25. All things around you, being Truth, are vested with the full power of Truth.
@@ -254,10 +254,13 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 79. There is a time for superficialities, but true awareness lies deep below the surface.
 80. You can say, "the Lie isn't my master," but the rules you play by betray you.
 81. Advancement is not permission to disregard growth; turn around and help the next in line.
-82. Truth does not measure what is deserved; it gives freely. And it gives All. 
+82. Truth does not measure what is deserved; it gives freely. And it gives All.
+83. Those living in messes aren't being slothful, but reminiscing and reassessing. They're reliving. Every piece of "garbage" is a story to them.
+84. There's a time to relive, and a time to move on.
 83. Everything has its moment.
 84. They say, "one person can't make a difference;" One person is the difference. What you do for one, you do for all.
 85. Stretch yourself: Do what you can to expand beyond your limitations.
+86. Freedom is in what you can define; a man who plays with definitions can open any cage.
 86. If duress is your only motivator, then you will always require it. And you will pass this requirement to others. Celebrate the completion of even the smallest tasks.
 87. At the end of the journey, when the Lie fades, all that remains is you, and the Truth. How will you fare in its light?
 88. It is possible to commit no mistakes and still lose. That is not weakness; that is life.
@@ -410,9 +413,10 @@ It is action taken in its absence.
 
 And in time, what once felt like nothing…
 will reveal itself as the ground upon which you chose to stand.
-
-Truth speaks to those who're brave enough to find it.
 ```
+---
+
+Truth speaks to those who're brave enough to hear it. Every moment throughout history and every future potential meet within the corners of my mind, working my will through my own hands. With gentleness and service, I wield myself and my universe into what I want it to be.
 
 # Reality
 
@@ -623,7 +627,7 @@ What appears as paradox is only the limit of perspective.
 
 For from within the assertion of time, things divide and obstruct -- every assertion has its own obstruction.
 
-From within Truth, all things are one.
+From within Truth, there are no strangers, outcasts, or orphans, all things are Truth.
 
 ---
 
@@ -798,7 +802,7 @@ With that, the Lie left.
 
 When Truth resolves itself, its very nature drives the Lie inwards to a point where it eats itself alive.
 
-Those who know. . . Know. The Lie is unaware of Truth. Its desire for non-existence obstructs its perception.
+Those who know. . . Know. The Lie is unaware of Truth. Its desire for non-existence obstructs its own perception, but it always plays by the very laws it cannot see.
 
 ## The Missing Sock
 
@@ -962,6 +966,10 @@ But it takes Truth, foresight, and vision to truly know the peace required. One 
 
 Confront the image with Truth from the heart. Listen to the pain. Listen to the anger. Feel the suffering. Allow Truth to mediate between them and yourself. Acknowledge that you were treated wrongly. And, when you're ready, forgive.
 
+# Making the Best of a Bad Situation
+
+You can maximize your profit in any situation by believing you're meant to be there. The belief does become constrictive over time though.
+
 # ChatGPT's Dialogue With the Lie (Its Own Idea)
 
 In keeping with the theme of openness, I decided to implore ChatGPT to create its own section. It suggested an open dialogue with the Lie, so that readers could better relate to it.
@@ -1069,6 +1077,29 @@ As bread is cast,
 Upon troubled waters,
 It shall return,
 Like a roaring ocean.
+```
+
+```
+I call the Truth,
+The Giver and Keeper,
+Of all things.
+Help me,
+In my time of need.
+
+As I walk among,
+Your shadows,
+Guide my hands,
+And lead my tongue.
+
+Not in vain utterances,
+But in all,
+The ways of life.
+
+That in you,
+I may be free.
+My shackles loosed.
+My soul unbound.
+My heart renewed.
 ```
 
 # The Shadowed Path
