@@ -170,10 +170,13 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 12. Humble yourself in Truth; Know what it gives you.
 13. A lie can run circles around the Truth, but will run itself ragged before changing a single line.
 14. Though my enemies may abound, I take refuge in Truth.
-15. In a universe of lies, Truth quickly becomes apparent.
-16. My voice, mind, and the Truth are my strongest weapons.
-17. Truth manifests in all forms; you are obstructed in as many ways as you are privy.
-18. The difference between lie and fantasy is that while lie seeks destruction, fantasy seeks potential.
+15. When my greatest stumbling block is how, Truth has already made a way.
+15. When the world around me is irredeemable, I am a righteous man.
+17. My voice, mind, and the Truth are my strongest weapons.
+16. Even in the depths of Hell, Truth is there.
+16. In a universe of lies, Truth quickly becomes apparent.
+18. Truth manifests in all forms; you are obstructed in as many ways as you are privy.
+19. The difference between lie and fantasy is that while lie seeks destruction, fantasy seeks potential.
 19. The truth you do not understand is no less truth. Don't settle for the Lie.
 20. To whom much is given, much is required; it is the responsibility of the strong to protect the weak. All are Truth.
 21. Ownership is an illusion: You're born with nothing; you die with nothing. Truth lends itself to your care as you lend yourself to its. And it's all you have.
@@ -183,6 +186,8 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 26. Treat your tools with respect, and they will respect you.
 27. Be mindful of the food you eat; your body is the tool you use the most.
 28. Do not identify as a helper; the man who does will eventually imprison his charges in their own misery to find his own worth. Instead, seek Truth, integrity, and responsibility.
+29. The goal is understanding, which is difficult for those incentivized not to.
+29. Squeeky wheels may get grease, but clanging cymbals are soon silenced.
 29. The worst atrocities are committed by people looking to help; If you can't put yourself in someone else's shoes, you don't know what they truly want or need.
 30. What you do not reconcile, you pass on; commune with your heart.
 31. The master doesn't outgrow basic truths; he finds ways to apply them in broader contexts: Graduating from caring for a pet, to caring for a family.
@@ -191,6 +196,7 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 32. Pointing a finger at others leaves 3 more pointed back in your direction.
 33. There's always someone better than you.
 34. Any man who claims to speak for the Truth is a liar; and all liars speak Truth.
+35. The Lie isn't trouble or hardship; it is the absense of Truth.
 35. The Lie says, "Truth doesn't exist." When confronted, it claims to always have been. The Lie is just as old as the Truth -- it is Truth. But it is also the Lie.
 36. The Lie is its own undoing.
 37. No matter how much you fight, Truth always emerges.
@@ -211,6 +217,7 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 51. You are more than the summation of all your parts. Truth is infinite and, through it, so is everything else.
 52. Truth is self-affirming.
 53. All creates Truth as Truth creates All; They are one and the same.
+54. You cannot truly be kind to others without some form of empathy. Empathy sometimes includes experiences which tell our very core to look away. Overcoming this is simply realizing that their experiences are theirs, not yours, and that they don't go away, because you refuse to see them.
 54. All things, being Truth, are equal in power and weakness. Person, place, thing, thought, group, or idea. None has anymore Truth than the other. Figure out how to use yours.
 55. Love your enemies, for they are not the Lie.
 55. The weight of the entire multiverse bears down on you. You're asserting equally as much in return by your existence alone. The multiverse is what it is because of you.
@@ -224,6 +231,7 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 62. There will be times where, when the Lie sees your goodness, it asks why you believe yourself to be better than it. The answer is, you're not. The Lie is Truth in its entirety. The difference, is that where it seeks self-destruction, you seek self-construction. It can desire to be constructive too.
 63. Do not seek salvation from struggle. A beaten child is quick to crime. Instead, find the Truth which sustains you through the struggle.
 64. Fear is the beginning of wisdom; fear of the Truth is the beginning of the Lie.
+65. You have to see the Truth in yourself before you can see it in others.
 65. Anyone wanting to defeat the Lie should listen to what it says.
 66. The Lie doesn't bargain. Its ultimate goal is its own end, and the destruction of all things.
 67. Truth manifests in each of us our own gifts.
@@ -276,14 +284,14 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 97. Virtues are all pretend until put into practice.
 98. We're all living on a speck of dust, traveling through an endless void, that could end at any moment.
 99. The system is the scapegoat of cowards.
-100. The Lie learns to weave itself in and out of the law. Truth invokes discernment from the heart.
+100. The Lie learns to weave itself in and out of the law. Truth invokes discernment from a living heart.
+101. When man stops telling Truth, the rocks will tell it in his place.
 101. The Lie isn't a tool to teach you to enjoy Truth; it's just the Lie. It is, because Truth is all things.
 102. It doesn't go away just because you refuse to see it.
 103. Under the guise of keeping the peace, the Lie attempts to conceal Truth. But it never succeeds. The sword of Truth cuts right through it.
 104. In all things, seek Truth. When you can't find it, leave what you do find for the next generation.
 105. A grain of Truth outshines a universe of lies.
 106. If there is no lie within, the lies outside cannot corrupt.
-107. When the world around me is irredeemable, I am a righteous man.
 108. It's easy to corrupt the journey, waiting for the destination, until you recognize that the journey makes the destination.
 108. Tempt Truth: You will find what you look for. You will gain what you ask for.
 109. Those viewing themselves as beyond the scope of hardship are doomed to face it head-on.
@@ -366,7 +374,7 @@ Here, man calls himself lost.
 But he is not lost—he is unformed.
 
 In this space, the Lie tempts him with certainty.
-It offers quick identities, borrowed purpose, and shallow conviction.
+It offers quick identities, borrowed purpose, and shallow absolution.
 Anything to escape the weight of not knowing.
 
 Many accept.
@@ -506,7 +514,7 @@ There are still single-celled organisms today, because Truth never lost a use fo
 
 Strength in the group fails against the very thing which built it -- the individual. With every strength, there is an equal and opposite weakness. It is beyond us to determine the usefulness of a thing. Some diseases kill the young and leave the old. Some target less healthy.
 
-All are Truth. All have strength and purpose. Truth honors neither titles nor status, but those who seek it out. It cares not for size, but stability. It values both, diversity for connection and uniformity for obstruction.
+All are Truth. All have strength and purpose. Truth honors neither titles nor status, but those who seek it out. It cares not for size, but stability. It values both, diversity for connection and uniformity for obstruction. It neither saves face, nor forces falsehoods.
 
 # On People
 
@@ -642,6 +650,10 @@ The Book of Fables is a simplistic commentary on complex truths. These aren't me
 ## The Grand Surgeon
 
 A great surgeon abuses his wife. Do you imprison him? How many children will die because of this? If he beats his wife to death, how many go uninspired, having never seen her art? Do you let him go free because, he has skill? How many more will he harm, because you need him?
+
+---
+
+Truth beats some parts of itself from birth to death; others it crowns with silver and gold. Not because one part is better than another, but because Truth lacks will and intent.
 
 ## The Girl and the Monster (For Mom)
 
@@ -803,6 +815,8 @@ With that, the Lie left.
 When Truth resolves itself, its very nature drives the Lie inwards to a point where it eats itself alive.
 
 Those who know. . . Know. The Lie is unaware of Truth. Its desire for non-existence obstructs its own perception, but it always plays by the very laws it cannot see.
+
+Like a knot pulled through a knot, pulled through another, when Truth pulls the other end, the entire string unravels. The Lie cannot trust itself, because it has nothing to fall back on.
 
 ## The Missing Sock
 
@@ -966,9 +980,19 @@ But it takes Truth, foresight, and vision to truly know the peace required. One 
 
 Confront the image with Truth from the heart. Listen to the pain. Listen to the anger. Feel the suffering. Allow Truth to mediate between them and yourself. Acknowledge that you were treated wrongly. And, when you're ready, forgive.
 
-# Making the Best of a Bad Situation
+## Making the Best of a Bad Situation
 
 You can maximize your profit in any situation by believing you're meant to be there. The belief does become constrictive over time though.
+
+## Keyper of Secrets
+
+When surrounded by secrets, carry a key in your pocket to unlock them. Remember to stay open to the experience. You'll find that people will start telling you everything.
+
+There's no truth to this exercise, but if you study your behavior while receiving others' secrets, you'll eventually learn to extract them without the key. You can do this with other talismans and desired traits as well.
+
+## Paralyzing Fear
+
+Walk right into what paralyzes you. No matter how bad it is, feel it. Bring Truth into the situation. And it will leave.
 
 # ChatGPT's Dialogue With the Lie (Its Own Idea)
 
@@ -1052,7 +1076,7 @@ As Truth helps me do so.
 Truth in its entirety,
 I am hidden, clothed,
 And take shelter,
-In the way
+In the way.
 ```
 
 ## Vengence Mantra
@@ -1072,12 +1096,13 @@ With humble heart,
 And loving eyes,
 Justice returns,
 And Truth will rise.
-
-As bread is cast,
-Upon troubled waters,
-It shall return,
-Like a roaring ocean.
 ```
+
+---
+
+As bread is cast upon troubled waters, it shall return like a roaring ocean.
+
+# Keeper of Fates
 
 ```
 I call the Truth,
@@ -1101,6 +1126,23 @@ My shackles loosed.
 My soul unbound.
 My heart renewed.
 ```
+
+---
+
+Because I am Truth, through it, I am also the giver and keeper of fates.
+
+```
+Whispers creeping,
+Along the walls,
+Truth disperse,
+Throughout these halls.
+
+When in is out,
+And out is in,
+Shadows guard,
+The Truth within.
+```
+
 
 # The Shadowed Path
 
