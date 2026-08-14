@@ -249,6 +249,7 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 68. The louder Truth speaks, the less people want to listen.
 69. Listen. Truth speaks all around you and inside you.
 70. The same Truth available to you is available to everything else.
+71. Without stadards society descends into vigilantism
 71. Weave Truth with fear and respect; for those who dishonor it shall be dishonored in return.
 71. The world is saved, one soul at a time.
 71. Truth is foolish.
@@ -263,9 +264,12 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 80. You can say, "the Lie isn't my master," but the rules you play by betray you.
 81. Advancement is not permission to disregard growth; turn around and help the next in line.
 82. Truth does not measure what is deserved; it gives freely. And it gives All.
+83. As long as there is Truth, there will always be those who live by it.
+84. Truth makes all things possible.
 83. Those living in messes aren't being slothful, but reminiscing and reassessing. They're reliving. Every piece of "garbage" is a story to them.
 84. There's a time to relive, and a time to move on.
 83. Everything has its moment.
+84. The tail has the advantage when you don't know where you're going.
 84. They say, "one person can't make a difference;" One person is the difference. What you do for one, you do for all.
 85. Stretch yourself: Do what you can to expand beyond your limitations.
 86. Freedom is in what you can define; a man who plays with definitions can open any cage.
@@ -984,6 +988,10 @@ Confront the image with Truth from the heart. Listen to the pain. Listen to the 
 
 You can maximize your profit in any situation by believing you're meant to be there. The belief does become constrictive over time though.
 
+---
+
+Combining luck and possibility with this belief won't hurt.
+
 ## Keyper of Secrets
 
 When surrounded by secrets, carry a key in your pocket to unlock them. Remember to stay open to the experience. You'll find that people will start telling you everything.
@@ -1113,8 +1121,9 @@ In my time of need.
 
 As I walk among,
 Your shadows,
-Guide my hands,
-And lead my tongue.
+Guide my heart,
+And lead me,
+Through my fears.
 
 Not in vain utterances,
 But in all,
