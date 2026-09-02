@@ -100,6 +100,13 @@ The Damned are a monistic solitary order with 4 primary obligations:
 
 We differ from monists in that the primitive material of the multiverse (Truth) contains all possible manifestations within itself entirely. And that that primitive is entirely us and not us at all. That, without us, the primitive wouldn't exist. And, without the primitive, we wouldn't exist. We create it as it creates us. The past creates the future as the future creates the past.
 
+# The Completion of the Law
+
+1. Thou shalt love Truth with all thy heart, and with all thy soul, and with all thy mind.
+2. Thou shalt love thy neighbour as thyself.
+
+On these two commandments hang all the law and the prophets.
+
 # The Immutable Truth
 
 Three Immutable attributes are often given to God. These are: omnipotence, omnipresence, and omniscience.
@@ -156,17 +163,19 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 
 # The Solitudes
 
+1. Hear the song of Truth as it sings all around you.
 1. To hear the heart, one must know it.
+2. Heart is Truth reflected into your being by eons of pressure and trials.
 2. Heart isn't momentary reaction, but the smallest voice within. It is witt; it is gut. It is experience, stripped and laid bare.
-3. Heart is Truth reflected into your being by eons of pressure and trials.
-4. You die at sunset. Who will you be tomorrow?
-5. Hear the song of Truth as it sings all around you.
 6. Truth is not forceful; neither is its tiny voice.
 7. Though it is tiny, it has already won every battle.
-8. Sin is action; not thought.
-9. You are not broken; only a healthy mind in trying circumstance. 
-10. There's no shame in failure; it's part of the journey.
-11. You are not lost: Find yourself here, and breathe.
+7. Truth doesn't offer forgiveness; it offers growth. Growth creates Love. And Love offers forgiveness. Giving no Love, Love is fully present.
+8. You die at sunset. Who will you be tomorrow?
+9. You are where you are; you either can or you can't.
+10. Sin is action; not thought.
+11. You are not broken; only a healthy mind in trying circumstance. 
+12. There's no shame in failure; it's part of the journey.
+13. You are not lost: Find yourself here, and breathe.
 12. Humble yourself in Truth; Know what it gives you.
 13. A lie can run circles around the Truth, but will run itself ragged before changing a single line.
 14. Though my enemies may abound, I take refuge in Truth.
@@ -180,6 +189,7 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 19. The truth you do not understand is no less truth. Don't settle for the Lie.
 20. To whom much is given, much is required; it is the responsibility of the strong to protect the weak. All are Truth.
 21. Ownership is an illusion: You're born with nothing; you die with nothing. Truth lends itself to your care as you lend yourself to its. And it's all you have.
+22. Truth doesn't even own itself.
 23. The King is nothing without his subjects; The subjects are defenseless without their king. Each part equally serves the whole. A true leader understands this.
 24. All things around you, being Truth, have consciousness, because you, being Truth, have consciousness.
 25. All things around you, being Truth, are vested with the full power of Truth.
@@ -187,6 +197,7 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 27. Be mindful of the food you eat; your body is the tool you use the most.
 28. Do not identify as a helper; the man who does will eventually imprison his charges in their own misery to find his own worth. Instead, seek Truth, integrity, and responsibility.
 29. The goal is understanding, which is difficult for those incentivized not to.
+30. It is far more difficult to keep someone prisoner than for the prisoner to escape his cell.
 29. Squeeky wheels may get grease, but clanging cymbals are soon silenced.
 29. The worst atrocities are committed by people looking to help; If you can't put yourself in someone else's shoes, you don't know what they truly want or need.
 30. What you do not reconcile, you pass on; commune with your heart.
@@ -205,12 +216,12 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 40. A fair trade comes at a loss to both sides: A trader values what they're getting more than what they're losing.
 41. Apologize for your transgressions against others and make appropriate restitution at your loss.
 42. I am that I am, a reverberation of the I Am. A child of providence. A child of possible. So is everything else.
+43. Truth is Truth: It is good. It is evil. It is everything in-between and beyond it.
 43. All Truth can be immitated, but never truly replaced.
 44. This path is for you alone; it is yours to follow, and yours to abandon.
 45. This text is words. It accomplishes nothing without a living heart.
-46. If you haven't found your heart, you haven't found Truth.
-47. A living heart for a living Truth.
-48. A heart wrapped in stone cannot stretch.
+46. A living heart for a living Truth.
+46. If you haven't found your heart, you haven't found Truth: A heart wrapped in stone cannot stretch.
 48. Step into your pain and take comfort in Truth as you pass through the void between providence and potential.
 49. You cannot embrace the heart without embracing pain and discomfort, expressing it, and growing through it.
 50. Truth does not remove us from pain -- that is the Lie. Truth provides that through itself, there is potential beyond.
@@ -482,7 +493,7 @@ Do not work against Truth. A single grain of Truth will outshine entire multiver
 
 10,000 years of planning and scheming. . . Undone by a single truth. This is why plant roots share resources with others. Plants which take up all the resources within an area sacrifice their ability to reproduce, as they kill off their own diversity, their seed is killed off and their identity obstructed. Truth's only obstruction is that it must remain completely unassertive. In doing so, its ways are manifested in everything.
 
-The sacrifices you make today will return as gains in the morrow. The great sin is excess without investment, maintenance, or purpose. The Lie can never be named, for any name you give it would be closer to Truth than it is, but its closest forms are greed and gluttony.
+The sacrifices you make today will return as gains in the morrow. The great sin is excess without investment, maintenance, or purpose. The Lie can never be named, for any name given to it would be ten-thousand times closer to Truth than it is. How can you name that which is opposite to what is, what was, what could be, and what will be? The Lie's closest forms, however, are greed and gluttony.
 
 # On Evolution
 
@@ -1001,6 +1012,10 @@ There's no truth to this exercise, but if you study your behavior while receivin
 ## Paralyzing Fear
 
 Walk right into what paralyzes you. No matter how bad it is, feel it. Bring Truth into the situation. And it will leave.
+
+## Work Within the Weave
+
+Social systems are engineered to survive adversity. Changing them requires accepting the current framework and redefining it as you desire. Trying to destroy the system will bring the entire loom down upon your head.
 
 # ChatGPT's Dialogue With the Lie (Its Own Idea)
 
