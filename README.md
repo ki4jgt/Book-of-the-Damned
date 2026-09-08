@@ -100,6 +100,8 @@ The Damned are a monistic solitary order with 4 primary obligations:
 
 We differ from monists in that the primitive material of the multiverse (Truth) contains all possible manifestations within itself entirely. And that that primitive is entirely us and not us at all. That, without us, the primitive wouldn't exist. And, without the primitive, we wouldn't exist. We create it as it creates us. The past creates the future as the future creates the past.
 
+We do not convert others, as Truth reveals itself to one soul at a time, in its own time. A single aperture through which Truth flows  can lead an entire army.
+
 # The Completion of the Law
 
 1. Thou shalt love Truth with all thy heart, and with all thy soul, and with all thy mind.
@@ -172,6 +174,7 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 7. Truth doesn't offer forgiveness; it offers growth. Growth creates Love. And Love offers forgiveness. Giving no Love, Love is fully present.
 8. You die at sunset. Who will you be tomorrow?
 9. You are where you are; you either can or you can't.
+10. You can either embrace what you are, or fear it; either way, it's what you are. What Truth has given you.
 10. Sin is action; not thought.
 11. You are not broken; only a healthy mind in trying circumstance. 
 12. There's no shame in failure; it's part of the journey.
@@ -184,6 +187,7 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 17. My voice, mind, and the Truth are my strongest weapons.
 16. Even in the depths of Hell, Truth is there.
 16. In a universe of lies, Truth quickly becomes apparent.
+17. A tiny spark is enough, as every point contains the whole.
 18. Truth manifests in all forms; you are obstructed in as many ways as you are privy.
 19. The difference between lie and fantasy is that while lie seeks destruction, fantasy seeks potential.
 19. The truth you do not understand is no less truth. Don't settle for the Lie.
@@ -224,6 +228,7 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 46. If you haven't found your heart, you haven't found Truth: A heart wrapped in stone cannot stretch.
 48. Step into your pain and take comfort in Truth as you pass through the void between providence and potential.
 49. You cannot embrace the heart without embracing pain and discomfort, expressing it, and growing through it.
+50. Lie does not destroy Truth; it convinces you that you don't want it.
 50. Truth does not remove us from pain -- that is the Lie. Truth provides that through itself, there is potential beyond.
 51. You are more than the summation of all your parts. Truth is infinite and, through it, so is everything else.
 52. Truth is self-affirming.
@@ -388,7 +393,30 @@ Here, man calls himself lost.
 
 But he is not lost—he is unformed.
 
+He stands at the point where what is joined appears divided,
+And what is divided remains joined.
+
+For there is a tension woven through all things.
+
+The self is not the world.
+The world is not the self.
+
+Yet neither stands entirely apart from the other.
+
+There is distance.
+There is contact.
+
+There is a boundary that separates,
+And a boundary that allows touch.
+
+Without separation, there can be no self.
+Without connection, there can be no understanding.
+
+Thus man stands between them,
+As he stands between Providence and Potential.
+
 In this space, the Lie tempts him with certainty.
+
 It offers quick identities, borrowed purpose, and shallow absolution.
 Anything to escape the weight of not knowing.
 
@@ -398,6 +426,7 @@ They would rather be wrong with confidence than real in uncertainty.
 
 But Truth does not shout in this place.
 It does not guide the hand or steady the step.
+
 It waits.
 
 For action.
@@ -417,12 +446,25 @@ These things feel small only to those who do not understand the weight they carr
 For every act asserts form upon Potential,
 And every act affirms Providence in return.
 
+Every choice is made across a distance.
+Every word is cast beyond the boundary of the self.
+Every work is an attempt to bridge what cannot be entirely bridged.
+
+And yet, understanding grows.
+
 Thus, the void is not empty.
 
 It is the point of contact.
 
-The place where all that has been meets all that could be—
-And demands that you decide.
+The place where separation meets connection.
+Where what has been meets what could be.
+Where the isolated and the infinite touch without becoming the same.
+
+And there, Truth waits.
+
+Not for certainty.
+
+For decision.
 
 Do not wait to feel ready.
 Do not wait to feel certain.
@@ -434,12 +476,15 @@ Instead, step forward into the full ambiguity of Truth.
 For it is not certainty that shapes the world—
 It is action taken in its absence.
 
-And in time, what once felt like nothing…
+And in time, what once felt like nothing...
+
 will reveal itself as the ground upon which you chose to stand.
 ```
 ---
 
-Truth speaks to those who're brave enough to hear it. Every moment throughout history and every future potential meet within the corners of my mind, working my will through my own hands. With gentleness and service, I wield myself and my universe into what I want it to be.
+Truth speaks to those who are brave enough to hear it. Not because it hides, but because it rarely arrives in forms that grant comfort. The most overlooked truths are not found in resolution, but in tension. We are taught to seek a single answer, a final certainty, a position from which all contradiction disappears. Yet the deepest truths often persist precisely because they refuse to collapse into simplicity. They live in the space where seemingly opposing realities remain true together.
+
+Every moment that has been and every potential that could be meet within the corners of my mind. Providence and Potential are not enemies there, but participants in the same conversation. Through my own hands, I give form to possibility while inheriting the weight of all that came before. With gentleness, service, and intention, I shape myself and my universe—not through domination, but through participation. Each choice is made at the point of contact between what is and what could be, between separation and connection, between the individual will and the greater reality in which it acts. It is there, within that tension, that Truth is most often ignored.
 
 # Reality
 
@@ -493,7 +538,7 @@ Do not work against Truth. A single grain of Truth will outshine entire multiver
 
 10,000 years of planning and scheming. . . Undone by a single truth. This is why plant roots share resources with others. Plants which take up all the resources within an area sacrifice their ability to reproduce, as they kill off their own diversity, their seed is killed off and their identity obstructed. Truth's only obstruction is that it must remain completely unassertive. In doing so, its ways are manifested in everything.
 
-The sacrifices you make today will return as gains in the morrow. The great sin is excess without investment, maintenance, or purpose. The Lie can never be named, for any name given to it would be ten-thousand times closer to Truth than it is. How can you name that which is opposite to what is, what was, what could be, and what will be? The Lie's closest forms, however, are greed and gluttony.
+The sacrifices you make today will return as gains in the morrow. The great sin is excess without investment, maintenance, or purpose. The Lie can never be named, for any name given to it would be measures closer to Truth than it is. How can you name that which is opposite to what is, what was, what could be, and what will be? The Lie's closest forms, however, are greed and gluttony. And even they pale in comparison to it.
 
 # On Evolution
 
