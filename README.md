@@ -325,7 +325,7 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 118. Be weary of flattery -- it is a seduction of the tongue. Train the heart to love Truth.
 119. Respect is not earned; it's mutual. Some have it. Some don't. Some may learn it. Others won't.
 120. Honor isn't vested in titles, but in the value one places on a single life which the rest of society has deemed unimportant.
-121. It is not the gifts Truth bestows upon you which make you valueable -- for Truth gives all to everyone. It is what you choose to do with those gifts.
+121. It is not the gifts Truth bestows upon you which make you valueable -- for Truth gives all to everything. It is what you choose to do with those gifts.
 120. "Get up and do it again" ~ Mary Ann Logan
 
 ```
@@ -594,11 +594,11 @@ This can be broadened into a more general set of principles for human-beings:
 
 These are the foundation of a free society. Refusing these rights to any person is an affront to Truth itself. It is the job of all people to protect and affirm these rights for themselves and each other.
 
-Those in authority tend to use that authority in a way which benefits them. Then fault individuals who do not play along for not contributing. As Truth is multidimensional, so too is authority. Authority must balance itself between all parties to remain impartial.
+Those in authority tend to use that authority in a way which benefits them. Then fault individuals who do not play along for not contributing. As Truth is multidimensional, so too is authority. Authority must balance itself between all parties to remain impartial. For it is not the gifts which Truth bestows upon you which make you important -- Truth gives all to everything, but in the choices you make with them. It is the value you place upon something which the rest of society denigrades which defines your own value -- and the right you give that thing to be itself.
 
-The individual owes the group service, and the group owes the individual the tools to freely rise to that service. Sometimes that service is picking up garbage. Others, it's engineering solutions. Truth is fully contained in both. For what can the engineer do with a dilapidated workspace? A rocketship cannot blastoff without a maintenance and cleaning crew. Every individual part is that launch. No part is above the role given to any other.
+The individual owes the group service, and the group owes the individual the tools to freely rise to that service. Truth is fully contained in all. For what can the engineer do with a dilapidated workspace? A rocketship cannot blastoff without a maintenance and cleaning crew. Every individual part is that launch. No part is above the role given to any other. And yet, as humans, we naturally hunger to better ourselves. That healthy drive is one part. Recognizing where to use it is the other.
 
-A violation of these terms from either side warrants retaliation from the other.
+A violation of these terms from any one person warrants retaliation from the others.
 
 # On God
 
