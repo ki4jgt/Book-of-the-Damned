@@ -325,6 +325,7 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 118. Be weary of flattery -- it is a seduction of the tongue. Train the heart to love Truth.
 119. Respect is not earned; it's mutual. Some have it. Some don't. Some may learn it. Others won't.
 120. Honor isn't vested in titles, but in the value one places on a single life which the rest of society has deemed unimportant.
+121. It is not the gifts Truth bestows upon you which make you valueable -- for Truth gives all to everyone. It is what you choose to do with those gifts.
 120. "Get up and do it again" ~ Mary Ann Logan
 
 ```
@@ -353,7 +354,7 @@ Both, the same Truth.
 
 Resting upon a table asserts force upon it. But the table, having form, asserts upon you too. How is it then, that your effort traverses this boundary and gets distributed to the floor?
 
-How much more does your own essence bypass all obstruction and radiate throughout all things?
+How much more does your own essence bypass all obstruction and radiate throughout all things? As a cell wall both defines the cell and allows things to pass through it, so too does everything else.
 
 ```
 Truth is all things, and nothing.
@@ -376,7 +377,7 @@ Always in you.
 And always you.
 ```
 
-Truth has no need, for it is all. Gentle enough to allow space for every outcome, yet firm enough to avoid being corrupted by them. Mercifully giving, while relentlessly upholding. A gracious host who is master of his domain. Not forceful. Not foreboding. Fully realized. Completely integral without assertion, it's only obstruction being that it can never assert itself.
+Truth has no need, for it is all. Gentle enough to allow space for every outcome, yet firm enough to avoid being corrupted by them. Mercifully giving, while relentlessly upholding. A gracious host who is master of his domain. Not forceful. Not foreboding. Fully realized. Completely integral, it's only obstruction being that it can never assert itself.
 
 It is the meek who run the world. The thirst for power and authority arises only from the weak and insecure. The meek have an understanding with Truth. They already know the power It gives. Firm in Its foundation. Fully realized, by asserting neither title nor authority, the truly meek dawn the garments of Truth running reality clad within them.
 
@@ -484,7 +485,7 @@ will reveal itself as the ground upon which you chose to stand.
 
 Truth speaks to those who are brave enough to hear it. Not because it hides, but because it rarely arrives in forms that grant comfort. The most overlooked truths are not found in resolution, but in tension. We are taught to seek a single answer, a final certainty, a position from which all contradiction disappears. Yet the deepest truths often persist precisely because they refuse to collapse into simplicity. They live in the space where seemingly opposing realities remain true together.
 
-Every moment that has been and every potential that could be meet within the corners of my mind. Providence and Potential are not enemies there, but participants in the same conversation. Through my own hands, I give form to possibility while inheriting the weight of all that came before. With gentleness, service, and intention, I shape myself and my universe—not through domination, but through participation. Each choice is made at the point of contact between what is and what could be, between separation and connection, between the individual will and the greater reality in which it acts. It is there, within that tension, that Truth is most often ignored.
+Every moment that has been and every potential that could be meet within the corners of my mind. Providence and Potential are not enemies there, but participants in the same conversation. Through my own hands, I give form to possibility while inheriting the weight of all that came before. With gentleness, service, and intention, I shape myself and my universe—not through domination, but through participation. Each choice is made at the point of contact between what is and what could be, between separation and connection, between the individual will and the greater reality in which it acts. It is there, within that tension, that Truth is most often found.
 
 # Reality
 
@@ -498,7 +499,7 @@ Even with infinite resources, this remains true. Taking an item from point A to 
 
 This is why numbers work. Numbers describe transactions like words describe flowers. But how can you describe a thing which is also every other thing?
 
-Neither the numbers, nor the words are real. Like words, numbers are imperfect. Their fatal flaw is the assumption that every transaction is the same as every other. Words' is that no two transactions are the same.
+Neither the numbers, nor the words give the flowers justice. Like words, numbers are imperfect. Their fatal flaw is the assumption that every transaction is the same as every other. Words' is that no two transactions are alike.
 
 One plus one does not equal two. It never has. One plus one assumes that 1-A and 1-B are the exact same object in every way. The corrected formula is 1A + 1B = 1C (or 2). Where 1 is a relative similarity that meets an accepted threshold for defining 1. A, B, and C are the accepted unique identifiers.
 
@@ -534,7 +535,7 @@ One more piece of advice: Costly present sacrifices ensure future gains; honest 
 
 Give willingly and freely to those society deems of lesser calibre than yourself. For all are Truth, and society is a trap. Sacrificing individuality for group think only works when there are predators nearby. Otherwise, it fails you miserably.
 
-Do not work against Truth. A single grain of Truth will outshine entire multiverses of Lies. Absolute chaos contains all patterns. Patterns contain systems. Systems contain Truth. In complete absense (chaos), Truth is made completely present by the very systems it isolates itself from.
+Do not work against Truth. A single grain of Truth will outshine entire multiverses of Lies. Absolute chaos contains all patterns. Patterns contain systems. Systems contain Truth. In complete absense (chaos), Truth is made completely present by the very systems it isolates itself from. Everything the Lie does, or will do, is known to Truth.
 
 10,000 years of planning and scheming. . . Undone by a single truth. This is why plant roots share resources with others. Plants which take up all the resources within an area sacrifice their ability to reproduce, as they kill off their own diversity, their seed is killed off and their identity obstructed. Truth's only obstruction is that it must remain completely unassertive. In doing so, its ways are manifested in everything.
 
