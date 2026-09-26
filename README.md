@@ -125,7 +125,7 @@ In essence, Truth is a fractal, reaching out to touch itself on all sides, throu
 
 With every construction, there is an equal and opposite obstruction. Because of this, you are as much Truth as you are yourself. You're just as ignorant as you are knowledgeable. We can only imagine other potentials, because they're obstructed from us, but every one of them is equally as real and every obstruction just as penetrable.
 
-A unifying theory of everything. An equation to explain the unfolding of existence in a small and neatly wrapped package. A god. A word. A breath. A sword. A shield. It doesn't echo through us. It is us. It is the present, the past, the future. It's all that is, ever will be, or ever could be, wrapped into a single point -- all happening at once. And you carry that with you everywhere.
+A unifying theory of everything. An equation to explain the unfolding of existence in a small and neatly wrapped package. A god. A word. A breath. A sword. A shield. It doesn't echo through us. It is us. It is the present, the past, the future. It's all that is, ever will be, or ever could be, wrapped into a single point -- all happening at once. And you carry that with you everywhere. Truth's very essence, and the proof of its existence, is both spontaneity and consistancy.
 
 It is Truth which makes peace, and fans the flames of war. It is Truth which evokes passion and desire within the hearts of men. It is Truth which gives these things purpose. Pain and sadness. Love and joy.
 
@@ -166,11 +166,11 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 # The Solitudes
 
 1. Hear the song of Truth as it sings all around you.
-1. To hear the heart, one must know it.
-2. Heart is Truth reflected into your being by eons of pressure and trials.
-2. Heart isn't momentary reaction, but the smallest voice within. It is witt; it is gut. It is experience, stripped and laid bare.
-6. Truth is not forceful; neither is its tiny voice.
-7. Though it is tiny, it has already won every battle.
+1. Heart is Truth reflected into your being by eons of pressure and trials.
+2. To hear the heart, one must know it.
+4. Truth is not forceful; neither is its tiny voice.
+5. Heart isn't momentary reaction, but the smallest voice within. It is witt; it is gut. It is experience, stripped and laid bare.
+6. Though it is tiny, it has already won every battle.
 7. Truth doesn't offer forgiveness; it offers growth. Growth creates Love. And Love offers forgiveness. Giving no Love, Love is fully present.
 8. You die at sunset. Who will you be tomorrow?
 9. You are where you are; you either can or you can't.
@@ -191,6 +191,7 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 18. Truth manifests in all forms; you are obstructed in as many ways as you are privy.
 19. The difference between lie and fantasy is that while lie seeks destruction, fantasy seeks potential.
 19. The truth you do not understand is no less truth. Don't settle for the Lie.
+20. Kindness and responsibility require more strength than brutality and neglect.
 20. To whom much is given, much is required; it is the responsibility of the strong to protect the weak. All are Truth.
 21. Ownership is an illusion: You're born with nothing; you die with nothing. Truth lends itself to your care as you lend yourself to its. And it's all you have.
 22. Truth doesn't even own itself.
@@ -219,7 +220,7 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 39. The past forms the present; the future shapes the past. All is Truth.
 40. A fair trade comes at a loss to both sides: A trader values what they're getting more than what they're losing.
 41. Apologize for your transgressions against others and make appropriate restitution at your loss.
-42. I am that I am, a reverberation of the I Am. A child of providence. A child of possible. So is everything else.
+42. I am that I am, a reverberation of the I Am. A child of providence. A child of possible. I am the living Truth.
 43. Truth is Truth: It is good. It is evil. It is everything in-between and beyond it.
 43. All Truth can be immitated, but never truly replaced.
 44. This path is for you alone; it is yours to follow, and yours to abandon.
@@ -229,11 +230,12 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 48. Step into your pain and take comfort in Truth as you pass through the void between providence and potential.
 49. You cannot embrace the heart without embracing pain and discomfort, expressing it, and growing through it.
 50. Lie does not destroy Truth; it convinces you that you don't want it.
-50. Truth does not remove us from pain -- that is the Lie. Truth provides that through itself, there is potential beyond.
 51. You are more than the summation of all your parts. Truth is infinite and, through it, so is everything else.
 52. Truth is self-affirming.
 53. All creates Truth as Truth creates All; They are one and the same.
-54. You cannot truly be kind to others without some form of empathy. Empathy sometimes includes experiences which tell our very core to look away. Overcoming this is simply realizing that their experiences are theirs, not yours, and that they don't go away, because you refuse to see them.
+54. Truth does not remove us from pain -- that is the Lie. Truth provides that through itself, there is potential beyond.
+54. You cannot truly be kind to others without some form of empathy. Empathy sometimes includes experiences which tell our very core to look away. Overcoming this is simply realizing that their experiences are theirs, not ours, and their experiences don't go away because we refuse to see them.
+55. Love exists only among equals.
 54. All things, being Truth, are equal in power and weakness. Person, place, thing, thought, group, or idea. None has anymore Truth than the other. Figure out how to use yours.
 55. Love your enemies, for they are not the Lie.
 55. The weight of the entire multiverse bears down on you. You're asserting equally as much in return by your existence alone. The multiverse is what it is because of you.
@@ -594,7 +596,7 @@ This can be broadened into a more general set of principles for human-beings:
 
 These are the foundation of a free society. Refusing these rights to any person is an affront to Truth itself. It is the job of all people to protect and affirm these rights for themselves and each other.
 
-Those in authority tend to use that authority in a way which benefits them. Then fault individuals who do not play along for not contributing. As Truth is multidimensional, so too is authority. Authority must balance itself between all parties to remain impartial. For it is not the gifts which Truth bestows upon you which make you important -- Truth gives all to everything, but in the choices you make with them. It is the value you place upon something which the rest of society denigrades which defines your own value -- and the right you give that thing to be itself.
+Those in authority tend to use that authority in a way which benefits them. Then fault individuals who do not play along for not contributing. As Truth is multidimensional, so too is authority. Authority must balance itself between all parties to remain impartial. For it is not the gifts which Truth bestows upon you which make you important, but in the choices you make with them. It is the value you place upon something which the rest of society denigrades which defines your own value. And the right you give that thing to be itself is the right you have to be your own self.
 
 The individual owes the group service, and the group owes the individual the tools to freely rise to that service. Truth is fully contained in all. For what can the engineer do with a dilapidated workspace? A rocketship cannot blastoff without a maintenance and cleaning crew. Every individual part is that launch. No part is above the role given to any other. And yet, as humans, we naturally hunger to better ourselves. That healthy drive is one part. Recognizing where to use it is the other.
 
