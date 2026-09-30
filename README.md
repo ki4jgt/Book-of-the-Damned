@@ -1179,6 +1179,10 @@ As bread is cast upon troubled waters, it shall return like a roaring ocean.
 I call the Truth,
 The Giver and Keeper,
 Of all things.
+The voice that sings,
+At the beginning,
+And end of time.
+
 Help me,
 In my time of need.
 
