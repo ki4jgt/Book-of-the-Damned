@@ -239,8 +239,8 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 54. All things, being Truth, are equal in power and weakness. Person, place, thing, thought, group, or idea. None has anymore Truth than the other. Figure out how to use yours.
 55. Love your enemies, for they are not the Lie.
 55. The weight of the entire multiverse bears down on you. You're asserting equally as much in return by your existence alone. The multiverse is what it is because of you.
-56. Take responsibility for the world around you. If not you, then whom?
-57. There is power in weakness.
+56. Take responsibility for the world around you. If not you, then who?
+57. There is power in weakness; the smallest aspect of Truth can disrupt and dismantle the largest.
 58. Everything around you talks to everything else; facilitate the conversations.
 58. Because of obstruction, every weakness has an equal and opposite strength. Every strength has an equal and opposite weakness.
 59. Cruelty is the heart crying out for Truth, while the Lie beats it relentlessly for doing so. That's how the Lie passes from thing to thing. It convinces Truth it isn't real.
@@ -801,7 +801,9 @@ The mesmerizer walked right in front of him, and the wise old man hit the mesmer
 
 ---
 
-Everything around you has, in one dimension or another, infinite influence over you. Influence over circumstance. Influence over mind. Even influence over your own body. Truth, being completely absent, becomes entirely present. The secret to control is listening for the smallest voice you can hear.
+Everything around you has, in one dimension or another, infinite influence over you. Influence over circumstance. Influence over mind. Even influence over your own body. Everything around you has identity, access to infinite states, and a desired state. And these 3 elements allow others to influence you, as much as they allow you to influence others.
+
+Truth, being completely absent, becomes entirely present. The secret to self is listening for the smallest voice you can hear.
 
 ## The Powerful Dog
 
@@ -1179,7 +1181,7 @@ As bread is cast upon troubled waters, it shall return like a roaring ocean.
 I call the Truth,
 The Giver and Keeper,
 Of all things.
-The voice that sings,
+The Song,
 At the beginning,
 And end of time.
 
