@@ -21,11 +21,24 @@ Enjoy the philosophy. Expand it, if it helps. Ignore it, if it doesn't.
 
 Personal note: This text is inspired by Jesus Christ, someone whom I believe realized Truth in its entirety, took it completely into himself, and sacrificed himself to help the rest of us get past social hangups.
 
-I created this work out of shear boredom. I tire of picking up books on spirituality, and having no new insights to gain. Just the same arguments perpetually rehashed.
+```
+You do not need certainty to move forward. You do not need permission to become who you are.
+
+The unseen laws of Truth are already at work around you and within you, weaving consequence from action, meaning from struggle, and possibility from every point of contact.
+
+The world is shaped not by grand declarations, but by countless small acts of courage, honesty, service, and growth. Every choice reaches farther than you can see. Every step touches the whole.
+
+Take the next step anyway.
+
+Truth does not always reveal the path before you. Often it reveals the path through you.
+
+The ground appears only after your foot begins to descend.
+
+```
 
 The Book of the Damned admits its flaws, and invites its tenants to confront and correct them.
 
-**PROVIDENCE .:. PROSPERITY .:. PROTECTION**
+**COURAGE .:. HONESTY .:. SERVITUDE .:. SELF**
 
 ---
 
@@ -167,6 +180,7 @@ Your power arises from making yourself small; what you do to the tiniest of thin
 
 1. Hear the song of Truth as it sings all around you.
 1. Heart is Truth reflected into your being by eons of pressure and trials.
+2. Be weary of those who demonize the heart.
 2. To hear the heart, one must know it.
 4. Truth is not forceful; neither is its tiny voice.
 5. Heart isn't momentary reaction, but the smallest voice within. It is witt; it is gut. It is experience, stripped and laid bare.
@@ -487,7 +501,7 @@ will reveal itself as the ground upon which you chose to stand.
 
 Truth speaks to those who are brave enough to hear it. Not because it hides, but because it rarely arrives in forms that grant comfort. The most overlooked truths are not found in resolution, but in tension. We are taught to seek a single answer, a final certainty, a position from which all contradiction disappears. Yet the deepest truths often persist precisely because they refuse to collapse into simplicity. They live in the space where seemingly opposing realities remain true together.
 
-Every moment that has been and every potential that could be meet within the corners of my mind. Providence and Potential are not enemies there, but participants in the same conversation. Through my own hands, I give form to possibility while inheriting the weight of all that came before. With gentleness, service, and intention, I shape myself and my universe—not through domination, but through participation. Each choice is made at the point of contact between what is and what could be, between separation and connection, between the individual will and the greater reality in which it acts. It is there, within that tension, that Truth is most often found.
+Every moment that has been and every potential that could be meet within the corners of my mind. Providence and Potential are not enemies there, but participants in the same conversation. Through my own hands, I give form to possibility while inheriting the weight of all that came before. With gentleness, service, and intention, I shape myself and my universe—not through domination, but through participation. Each choice is made at the point of contact between what is and what could be, between separation and connection, between the individual will and the greater reality in which it acts. It is there, within that tension, that Truth is found.
 
 # Reality
 
@@ -542,6 +556,21 @@ Do not work against Truth. A single grain of Truth will outshine entire multiver
 10,000 years of planning and scheming. . . Undone by a single truth. This is why plant roots share resources with others. Plants which take up all the resources within an area sacrifice their ability to reproduce, as they kill off their own diversity, their seed is killed off and their identity obstructed. Truth's only obstruction is that it must remain completely unassertive. In doing so, its ways are manifested in everything.
 
 The sacrifices you make today will return as gains in the morrow. The great sin is excess without investment, maintenance, or purpose. The Lie can never be named, for any name given to it would be measures closer to Truth than it is. How can you name that which is opposite to what is, what was, what could be, and what will be? The Lie's closest forms, however, are greed and gluttony. And even they pale in comparison to it.
+
+
+```
+You do not need certainty to move forward. You do not need permission to become who you are.
+
+The unseen laws of Truth are already at work around you and within you, weaving consequence from action, meaning from struggle, and possibility from every point of contact.
+
+The world is shaped not by grand declarations, but by countless small acts of courage, honesty, service, and growth. Every choice reaches farther than you can see. Every step touches the whole.
+
+Take the next step anyway.
+
+Truth does not always reveal the path before you. Often it reveals the path through you.
+
+The ground appears only after your foot begins to descend.
+```
 
 # On Evolution
 
@@ -803,7 +832,7 @@ The mesmerizer walked right in front of him, and the wise old man hit the mesmer
 
 Everything around you has, in one dimension or another, infinite influence over you. Influence over circumstance. Influence over mind. Even influence over your own body. Everything around you has identity, access to infinite states, and a desired state. And these 3 elements allow others to influence you, as much as they allow you to influence others.
 
-Truth, being completely absent, becomes entirely present. The secret to self is listening for the smallest voice you can hear.
+Truth, being completely absent, becomes entirely present. The secret to self, in a world of influence, is listening for the smallest voice you can hear -- listening for Truth. For the value in your self is not in the amount of Truth you possess -- the entirety of Truth avails itself to all. It is in what you do with Truth.
 
 ## The Powerful Dog
 
@@ -1182,8 +1211,8 @@ I call the Truth,
 The Giver and Keeper,
 Of all things.
 The Song,
-At the beginning,
-And end of time.
+At the end,
+And the beginning.
 
 Help me,
 In my time of need.
@@ -1203,6 +1232,11 @@ I may be free.
 My shackles loosed.
 My soul unbound.
 My heart renewed.
+
+Be my strength,
+When others fail.
+
+Great, I am!
 ```
 
 ---
