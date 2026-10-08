@@ -26,7 +26,7 @@ You do not need certainty to move forward. You do not need permission to become 
 
 The unseen laws of Truth are already at work around you and within you, weaving consequence from action, meaning from struggle, and possibility from every point of contact.
 
-The world is shaped not by grand declarations, but by countless small acts of courage, honesty, service, and growth. Every choice reaches farther than you can see. Every step touches the whole.
+The world is shaped not by grand declarations, but by countless small acts of courage, honesty, servitude, and growth. Every choice reaches farther than you can see. Every step touches the whole.
 
 Take the next step anyway.
 
@@ -563,7 +563,7 @@ You do not need certainty to move forward. You do not need permission to become 
 
 The unseen laws of Truth are already at work around you and within you, weaving consequence from action, meaning from struggle, and possibility from every point of contact.
 
-The world is shaped not by grand declarations, but by countless small acts of courage, honesty, service, and growth. Every choice reaches farther than you can see. Every step touches the whole.
+The world is shaped not by grand declarations, but by countless small acts of courage, honesty, servitude, and growth. Every choice reaches farther than you can see. Every step touches the whole.
 
 Take the next step anyway.
 
@@ -932,7 +932,7 @@ The man and wolf met at a point and exchanged fear between themselves. That fear
 
 As we project our infinite selves into the multiverse, the multiverse projects its infinite self into us. We have infinite options at our disposal.
 
-Choice is knowing a situation, assessing it, and using an appropriate response.
+Choice is knowing a situation, assessing it, and using an appropriate response. Violence will always begat more violence, just as peace breeds peace.
 
 ---
 
@@ -1037,17 +1037,17 @@ If Truth is completely present by being completely absent, then does Truth even 
 
 # The Laws of Luck
 
-1. There's no such thing as luck.
-2. Strive to understand and respect the spirit of things.
-3. Respect your tools and they will respect you.
-4. Prioritize small measured steps over grand haphazard leaps.
-5. Prioritize stewardship over indebtment.
-6. In trading, both parties should be competent and value what they're receiving more than what they're losing.
-7. Give back to your community.
-8. Repay your debts with interest.
-9. Charge no interest on what you loan.
-10. Forgive old debts.
-11. Work hard; play harder.
+1. Strive to understand and respect the spirit of things.
+2. Respect your tools and they will respect you.
+3. Prioritize small measured steps over grand haphazard leaps.
+4. Prioritize stewardship over indebtment.
+5. In trading, both parties should be competent and value what they're receiving more than what they're losing.
+6. Give back to your community.
+7. Repay your debts with interest.
+8. Charge no interest on what you loan.
+9. Forgive old debts.
+10. Work hard; play harder.
+11. Honesty fails no challenges to its authority.
 12. None of these laws matter; Truth promises nothing.
 
 # Mental Exercises
