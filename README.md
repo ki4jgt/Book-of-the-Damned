@@ -32,7 +32,7 @@ Take the next step anyway.
 
 Truth does not always reveal the path before you. Often it reveals the path through you.
 
-The ground appears only after your foot begins to descend.
+The ground reveals itself only after your foot begins to descend.
 
 ```
 
@@ -569,7 +569,7 @@ Take the next step anyway.
 
 Truth does not always reveal the path before you. Often it reveals the path through you.
 
-The ground appears only after your foot begins to descend.
+The ground reveals itself only after your foot begins to descend.
 ```
 
 # On Evolution
@@ -734,6 +734,20 @@ From within Truth, there are no strangers, outcasts, or orphans, all things are 
 Because one point in Truth has will, all things in Truth have will. As the entire multiverse pushes your foot into the sand, Truth pushes will into all things, as all things push will back into Truth.
 
 In absolute chaos, where no laws are enforced and Truth is completely absent, the laws of Truth are fully present.
+
+# The Book of Manifestations
+
+Everything is a manifestation of Truth.
+
+Truth weaving itself in and out of its own being, aligning pre-formed and not-yet-known points together to form all that is.
+
+We are the Servistoj Veron, the Servants of Truth. Our work is to learn the patterns, and to bring forth what must be from the shadows.
+
+From before the dawn of creation to beyond the cosmic heat death, all things are made manifest in Truth. All wills. All fate. All powers. All stories told. All endings made.
+
+Controling Truth is like controling a river. You can redirect its flow. You can dam it up. Add spillways, and basins, and sinks. But something which avails itself to all can rarely be contained.
+
+Instead, we must bring the pattern together, to carve out where our desired points should meet. All things already exist. We merely need to give them form.
 
 # Fables
 
@@ -1048,7 +1062,8 @@ If Truth is completely present by being completely absent, then does Truth even 
 9. Forgive old debts.
 10. Work hard; play harder.
 11. Honesty fails no challenges to its authority.
-12. None of these laws matter; Truth promises nothing.
+12. Seek honor and righteousness before all else.
+13. None of these laws matter; Truth promises nothing.
 
 # Mental Exercises
 
