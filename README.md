@@ -948,7 +948,7 @@ The man and wolf met at a point and exchanged fear between themselves. That fear
 
 As we project our infinite selves into the multiverse, the multiverse projects its infinite self into us. We have infinite options at our disposal.
 
-Choice is knowing a situation, assessing it, and using an appropriate response. Violence will always begat more violence, just as peace breeds peace.
+Choice is knowing a situation, assessing it, and using an appropriate response. Violence will always begat more violence, just as peace breeds peace. The grave you dig for another, you place yourself in. The curse you place in vengence, shall visit you as well.
 
 ---
 
