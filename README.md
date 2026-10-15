@@ -3,7 +3,7 @@
 Book of the Damned
 ==================
 
-# Purpose (Your Personal Reason)
+# Purpose
 
 **The Book of the Damned** is a public domain spiritual framework — a shared cosmology for those seeking meaning, morality, and community outside the confines and constraints of traditional religion.
 
@@ -19,7 +19,7 @@ I also encourage learning to play the game of Go — not as doctrine, but as a c
 
 Enjoy the philosophy. Expand it, if it helps. Ignore it, if it doesn't.
 
-Personal note: This text is inspired by Jesus Christ, someone whom I believe realized Truth in its entirety, took it completely into himself, and sacrificed himself to help the rest of us get past social hangups.
+Personal note: This text is inspired by Jesus Christ, someone whom I believe realized Truth in its entirety, took it completely into himself, and by keeping the law, broke it. Sacrificing himself to help the rest of us get past social hangups.
 
 ```
 You do not need certainty to move forward. You do not need permission to become who you are.
@@ -46,7 +46,7 @@ Everything above this point is cultural interpretation. Open to amendment, modif
 
 ---
 
-# Preamble: In principio erat Verbum (The Entirety of the Law)
+# Preamble: In principio erat Verbum
 
 ```
 In the beginning is the Word,
