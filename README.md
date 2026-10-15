@@ -741,7 +741,7 @@ Everything is a manifestation of Truth.
 
 Truth weaving itself in and out of its own being, aligning pre-formed and not-yet-known points together to form all that is.
 
-We are the Servistoj Veron, the Servants of Truth. Our work is to learn the patterns, to bring forth what must be from the shadows, and to hide what cannot be shown behind them. Shadow and light both being true, one must give oneself to the Truth, for Truth to give itself to the one. To receive this exchange, one must first have a self to give -- a loving heart of one's very own, for this is the gift that Truth gives. A self for all things, and all things for a self.
+We are the Servistoj Veron, the Servants of Truth. Our work is to learn the patterns, to bring forth what must be from the shadows, and to hide what cannot be shown behind them. Shadow and light both being true, one must give oneself to the Truth, for Truth to give itself to the one. To receive this exchange, one must first have a self to give -- a loving heart of one's very own, for this is the gift that Truth gives. A self for all things, and all things for a self. This is the fulfillment of the law.
 
 From before the dawn of creation to beyond the cosmic heat death, all things are made manifest in Truth. All wills. All fate. All powers. All stories told. All endings made.
 
