@@ -741,13 +741,15 @@ Everything is a manifestation of Truth.
 
 Truth weaving itself in and out of its own being, aligning pre-formed and not-yet-known points together to form all that is.
 
-We are the Servistoj Veron, the Servants of Truth. Our work is to learn the patterns, and to bring forth what must be from the shadows.
+We are the Servistoj Veron, the Servants of Truth. Our work is to learn the patterns, to bring forth what must be from the shadows, and to hide what cannot be shown behind them. Shadow and light both being true, one must give oneself to the Truth, for Truth to give itself to the one. To receive this exchange, one must first have a self to give -- a loving heart of one's very own, for this is the gift that Truth gives. A self for all things, and all things for a self.
 
 From before the dawn of creation to beyond the cosmic heat death, all things are made manifest in Truth. All wills. All fate. All powers. All stories told. All endings made.
 
-Controling Truth is like controling a river. You can redirect its flow. You can dam it up. Add spillways, and basins, and sinks. But something which avails itself to all can rarely be contained.
+Controling Truth is like controling a river. You can redirect its flow. You can dam it up. Add spillways, and basins, and sinks. But something which avails itself to all can never be contained.
 
-Instead, we must bring the pattern together, to carve out where our desired points should meet. All things already exist. We merely need to give them form.
+Instead, we must bring the pattern together, to carve out where our desired points should meet. All things already existant. We merely need to give them form.
+
+**Even in the darkest shadows**, Truth is always with me.
 
 # Fables
 
