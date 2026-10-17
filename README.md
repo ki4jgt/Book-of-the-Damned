@@ -846,9 +846,9 @@ The mesmerizer walked right in front of him, and the wise old man hit the mesmer
 
 ---
 
-Everything around you has, in one dimension or another, infinite influence over you. Influence over circumstance. Influence over mind. Even influence over your own body. Everything around you has identity, access to infinite states, and a desired state. And these 3 elements allow others to influence you, as much as they allow you to influence others.
+Everything around you has, in one dimension or another, infinite influence over you. Influence over circumstance. Influence over mind. Even influence over your own body. Everything around you has identity, access to infinite states, and a desired state. And these 3 elements allow others to influence you, as much as they allow you to influence others. Everything is both, what it is and what it wants to be.
 
-Truth, being completely absent, becomes entirely present. The secret to self, in a world of influence, is listening for the smallest voice you can hear -- listening for Truth. For the value in your self is not in the amount of Truth you possess -- the entirety of Truth avails itself to all. It is in what you do with Truth.
+Truth, being completely absent, becomes entirely present. The secret to self, in a world of influence, is listening for the smallest voice you can hear -- listening for Truth. For the value in your self is not in the amount of Truth you possess -- the entirety of Truth is in all of us. It is in what you do with Truth.
 
 ## The Powerful Dog
 
@@ -1252,6 +1252,8 @@ My heart renewed.
 
 Be my strength,
 When others fail.
+I offer myself to you,
+As you offer yourself to me.
 
 Great, I am!
 ```
