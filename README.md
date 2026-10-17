@@ -588,7 +588,7 @@ Humans cannot ignore the laws of Truth. They will keep popping up. And Truth gav
 
 For each challenge, there evolves a demand for a solution. And as much as Truth demands homogeny, so too does Truth demand individual obstruction, identity, and specialization.
 
-Group identity conceals and protects, so individual identity can survive. All for one, and one for all.
+Group identity conceals and protects, so individual identity can survive. All for one, and one for all. Each individual member, a vital part to the body as a whole.
 
 This is not a group text, however. It is for the sharpening of the single individual. Groups create camoflauge, but crowd think tends toward stupidity. Truth contained here is free to every man, but should be left solely up to him to interpret.
 
@@ -600,11 +600,11 @@ In the beginning of us, the essentials for life came about many times. It wasn't
 
 And, as cells warred against one another, complex Truth systems -- already in existence -- began to rear themselves. Teams and partnerships emerged as multicellular organisms could consume more of their competition -- it is from these wars that we gain our emotions. Primitive logical structures which bridge the conceptual and the physical. The necessity with the meaning. These primitive systems should be built atop, not castrated.
 
-But the challenge is unknowable, so too is the solution. Truth produces variance because every variation is a solution to some unknowable challenge.
+But the challenge is unknowable, so too is the solution. Truth produces variance because every variation is a solution to some unknowable. Your awareness of your own existence is but a blip in an infinite unawareness. The entire span of time before your birth and after your death, you've been entirely unaware of your own existence, in this universe.
 
 There are still single-celled organisms today, because Truth never lost a use for them. Viruses and bacteria can take down entire multicellular organisms, because they're small enough to infiltrate said organisms.
 
-Strength in the group fails against the very thing which built it -- the individual. With every strength, there is an equal and opposite weakness. It is beyond us to determine the usefulness of a thing. Some diseases kill the young and leave the old. Some target less healthy.
+Strength in the group fails against the very thing which built it -- the individual. With every strength, there is an equal and opposite weakness. It is beyond us to determine the usefulness of a thing. Some diseases kill the young and leave the old. Some target the less healthy.
 
 All are Truth. All have strength and purpose. Truth honors neither titles nor status, but those who seek it out. It cares not for size, but stability. It values both, diversity for connection and uniformity for obstruction. It neither saves face, nor forces falsehoods.
 
