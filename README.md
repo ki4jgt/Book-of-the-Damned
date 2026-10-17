@@ -600,7 +600,7 @@ In the beginning of us, the essentials for life came about many times. It wasn't
 
 And, as cells warred against one another, complex Truth systems -- already in existence -- began to rear themselves. Teams and partnerships emerged as multicellular organisms could consume more of their competition -- it is from these wars that we gain our emotions. Primitive logical structures which bridge the conceptual and the physical. The necessity with the meaning. These primitive systems should be built atop, not castrated.
 
-But the challenge is unknowable, so too is the solution. Truth produces variance because every variation is a solution to some unknowable. Your awareness of your own existence is but a blip in an infinite unawareness. The entire span of time before your birth and after your death, you've been entirely unaware of your own existence, in this universe.
+But the challenge is unknowable, so too is the solution. Truth produces variance because every variation is a solution to some unknowable. Your awareness of your own existence is but a blip in an infinite unawareness. The entire span of time before your birth and after your death, you've been entirely unaware of your own existence, in this universe. Why?
 
 There are still single-celled organisms today, because Truth never lost a use for them. Viruses and bacteria can take down entire multicellular organisms, because they're small enough to infiltrate said organisms.
 
