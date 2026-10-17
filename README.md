@@ -176,7 +176,7 @@ All Truth converges on a single point. Every side, with equal strength, reinforc
 
 Your power arises from making yourself small; what you do to the tiniest of things, you do to the multitude of them.
 
-In this way, Truth and youself are equal to all things around you. There is no power imbalance in a system where all parts are equal in power. And the only real power is Truth.
+In this way, Truth and youself are equal to all things around you. There is no power imbalance in a system where all parts are equal in power. And the only real power is Truth. Below symbols and flags and names and titles. Below rank and station and order and chaos. . . Is Truth. . . Which upholds them all.
 
 # The Solitudes
 
